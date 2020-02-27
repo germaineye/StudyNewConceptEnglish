@@ -1,4 +1,4 @@
-# Learning Note
+# Learning Notes
 
 ## Lesson 137
 
@@ -55,5 +55,44 @@ Tom told Lucy he would come and meet her in the hotel at 8 :00 p.m, but  Tom's b
 Please don't say this. Who do you think  you are ? The big boss?
 4. 请告诉我会议前我需要做些什么。 我将不在明天再一次犯错误。  
 Please tell me what I must do before the meeting. I won't make the mistake  again tomorrow. 
-5. 我不知道她是昨天是如何赢到1万美金的。
+5. 我不知道她是昨天是如何赢到1万美金的。  
 I didn't know how she won the 10 thousand dollors yesterday.
+
+## Lesson 139
+
+2020/02/26   Wednesday    sunny
+
+### Words bank
+
+- **company** ( 缩写为Co. )  
+
+1. 公司，  复数为 companies.
+2. 歌舞团， 例： They have worked for this dance company for 10 years. 
+3. 陪伴, 例： Tom, I enjoy your company very much.
+
+- **line** 名词，线路
+
+1. 线条，线。例： Please draw a black line on the box.
+2. 脸部的皱纹，纹路。例：This lady has a small face with deep lines.
+3. 排，行、列队。 例1：The boys are standing in a line.  
+例2：We are waiting in line for the bus. (美国口语常见)
+
+### Core Sentences
+
+1. **Oh, and *by the way* , my wife wants me to know if Mary needs any help.**  
+哦，顺便问一下，我妻子想知道是否需要帮助。（by the way 口语中常用的插入语)  
+if 作如果是条件状语从句（主将从现， 作是否意思为宾语从句大部份可以和whether互换  
+不过，如果whether 用的是 **whether or not**，则不可以改为~~if or not~~
+
+### Translation exercise
+
+1. 汤姆说：“如果我明年住在农村，我将会给我自己买一辆新车。”  
+Tom said:" if I live  in the country next year, I'll buy a new car for myself."
+2. 我不知道明年我是否会住在农村。  
+I don't know  if/whether I'll live in the country next year.
+3. 你知道是否汤姆明年会买一辆新车吗？  
+Do you know if /whether Tom will buy a new car next year?
+4. 我想问一下汤姆是否他明年打算住在农村。  
+I want to ask Tom  if /whether he is going to  live in the country next year.
+5. 汤姆也不知道他是否明年会买一辆新车。  
+Tom also doesn't know if/whether he will buy a new car next year .
