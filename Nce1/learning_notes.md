@@ -23,7 +23,7 @@ No, I don't.
 如果我今天买足赌注，可能，我会在明天赢得10万美元!  
 If I do the football pools today, maybe, I will win 100 thousand dollars  tomorrow.
 
-## Lesson 138
+## Lesson 139-1
 
 2020/02/26   Wednesday    sunny
 
@@ -58,9 +58,9 @@ Please tell me what I must do before the meeting. I won't make the mistake  agai
 5. 我不知道她是昨天是如何赢到1万美金的。  
 I didn't know how she won the 10 thousand dollors yesterday.
 
-## Lesson 139
+## Lesson 139-2
 
-2020/02/26   Wednesday    sunny
+2020/02/27      Thursday  Sunny
 
 ### Words bank
 
@@ -96,3 +96,50 @@ Do you know if /whether Tom will buy a new car next year?
 I want to ask Tom  if /whether he is going to  live in the country next year.
 5. 汤姆也不知道他是否明年会买一辆新车。  
 Tom also doesn't know if/whether he will buy a new car next year .
+
+## Lesson 139-3
+
+2020/02/28      Friday  Sunny
+
+### Words bank
+
+- **wonder**
+1. 动词，想搞明白，感到纳闷  
+**I wonder if the news which I read this morning is true.**  
+I am wondering about Jim.  我一直都在怀疑Jim.  
+I wonder why!   
+I wonder how!   
+I wonder who you are.
+2. 口语中，常见该在句子中，可表达“不知可否..."这类礼貌提问或请人做事时的谦虚与敬语  
+I wonder if you can give me some money.  
+**I was wondering** whether you  could come to my party.
+3. 固定搭配**no wonder**, 表示“怪不得”  
+No wonder she didn't want to marry you.  
+No wonder you get a cold.
+
+### Core Sentences
+
+1.  **Whether Tom is ill is still not clear.**  
+放在句首表示“是否”，往往只能用 whether。注意：这里是由whether 引导的主语从句。
+2. **It depends on whether you can win the money .**  
+若是在介词的后面引导宾语从句，且表示“是否”，则只能用whether 引导。
+3. **Please tell me if you want to marry me.**  
+因为if有两个身份，当交际中如果用if会让对方产生歧义，则往往改用whether
+上面有两种理解一：如果你想要嫁给我，请告诉我。 二：请告诉我是否想要嫁给我。  
+再比如： **Let us know if you like this movie.**  
+4. **My mum doesn't know whether to buy or sell the house Beijing.**  
+**Tom is not sure whether to leave or stay.**  
+如果在表示“是否”这个意思之后跟的是“**动词不定式**”，则往往只能用whether.
+
+### Translation exercise
+
+1. 我在担心是否你已经伤到了你的背脊。  
+I worry about whether you have already hurt your back.
+2. 汤姆的故事是不是真的，我不确定。  
+Whether Tom's story is true, I am not sure.
+3. 您能告诉我是否已经通过这场考试了吗？  
+Could you tell me if/whether I have already passed this exam?
+4. 我明天打算去上海，不管你是不是已经买了机票。
+I am going to Shanghai tomorrow whether or not you  have already bought  the plane ticket.
+5. 请让我知道一下，如果你能找到一件更大号的裙子。  
+Please let me know if you can find a more large dress.
