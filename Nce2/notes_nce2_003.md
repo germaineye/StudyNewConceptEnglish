@@ -1,6 +1,6 @@
 # Lesson 3
 
-- **Part 1  Vocabulary talk show**  
+## Part 1  Vocabulary talk show
 
 1. **Museum n. 博物馆**  
 *Muse --> 缪斯女神*， 在希腊神话中有9位缪斯女神，主管文学，艺术，科学。  
@@ -63,7 +63,7 @@ The mother faced a dilemma of choosing between her son or daughter.
 single room   单人间   ( double room)
 single bed 单人床  (double bed )
 
-- **Part 2  Key Structures**
+## Part 2  Key Structures
 
   1.  **A friendly waiter taught me a few words of Italian.**  
   Then he lent me a book.  
@@ -99,7 +99,7 @@ single bed 单人床  (double bed )
        特别注， 有although,就没有but  
        Though I have failed , I will not give up .  尽管我失败了，但是我不会放弃.
 
-- **Reporting 转述**    
+## Part 3 Reporting 转述
 Let us briefly talk about the story first.  
 故事中， Mike 说他的假期常常被 明信片给搅和了。  
 然后他提到了自己去年夏天在意大利的经历作为例子。  
