@@ -81,7 +81,7 @@
              another garage = one more garage (又一个修车厂)
              another   VS. the other （两者中另一个)  
              你有两个苹果，吃了一个，接着吃另一个
-             I ate the other  apple   
+             I ate the other  apple  
              Would you like another / one more apple? 你还想再来一个吗  
   2. **Up to now , Mr. Scott has sent a great many requests for spare parts and other urgent messages from one garage to the other.**   
        a.  对于长句的理解， 要先提出主干信息(Key information)
@@ -111,6 +111,7 @@
          **by the way :** *By the way*, have you seen Harry recently? 顺便问一句, 你最近见过哈理吗?  
       b. private telephone service 私电话业务  
             Telephone service is usually a public service.  而文章中作者特意加上一个private, 来构成反差,是一种用词上的幽默. 
+
 ## Part 3 Reporting 转述
 假设, 你和一个老外在聊天,老外聊到车库,你想到了你的朋友Scott. 你可以这样说:  
 谈到车库,我想讲一个有趣的故事.  Talking about garages, I have a fun story to tell.   
@@ -135,7 +136,8 @@ What  is the idea?  He has just bought twelve pigeons  to carry messages   from 
 The pigeons can fly very fast, as they can  cover the distance in just three minutes.  
 In this way,  the pigeons  have become the  private telephone service for James.  
 
-**Garage 在美国人的生活中有重要的意义**
+### Garage 在美国人的生活中有重要的意义
+
 1. Garage sale  车库杂货大甩卖  
 2. Garage startups 车库初创企业  
 很多著名的公司都在车库里开始创业的,如:  apple, Google, Amazon, Disney, HP  
