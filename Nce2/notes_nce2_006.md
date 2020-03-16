@@ -58,10 +58,23 @@
              I wanna answer the call of nature,  我想上厕所  (响应大自然的召唤)  
       e.  too close to call, 双方实力太接近, 很难做出最后的判断  
             The presidential election is too close to call.  总统选举势均力敌, 胜负难分.
+5. **词组**  
+      put...on 放置，　I *put* your book *on* the shelf. 我把你的书房子书架上。  
+      put on , 穿戴, I *put on* my hat and left the house. 我戴上帽子，离开了屋子。  
+      take off, 脱下, 飞机起飞 It was very hot, so I *took off* my coat. 天很热因此我脱掉了外套。 
+      look at, 看，　Come and *look at* my photograph album. 过来，看看我的相册。  
+      look for, 寻找，I am *looking for* my pen. I lost it this morning.　我正在找我的钢笔，我今天早上把它弄丢了。  
+      look after, 照看，Will you *look after* the children for me please?　请你帮我照看一下孩子们，好吗？  
+      knock at , 敲门, A beggar  *knocked at* my door  
+      knock...off, 碰倒，　I *knocked* the vase *off*  the table and broke it. 我把花瓶从桌上碰掉了，把它打碎了。  
+      knock off, 下班，　He always *knocks off* at six o'clock.(He finishes his work), 他总是６点钟下班。  
+      knock % off, 优惠%,  The shop assistant *knocked 10% off% the bill.(He reduced the price by 10%)售货员给了10%的优惠。  
+      knock..over, 撞倒，　A car *knocked* the boy *over*.(It hit him and made him fall.) 汽车把男孩撞倒了。
+      knock..out,  打晕，　In the fight, thief *knocked* the policeman *out*. 在搏斗中小偷把警察打昏了。  
 
 ## Part 2  Key Structures
 
-  1.  **I have just moved to a house in Bridge street.**  
+  1. **I have just moved to a house in Bridge street.**  
       a. 完成时, 表示搬家这个事已经完成,现在住在新家了  
       b.  Just 强调"刚刚"  
       c.  搬家的表达: 
