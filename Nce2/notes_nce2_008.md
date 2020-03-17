@@ -121,8 +121,23 @@
 
 ### 转述英语全文  
 
-      
+      My friend Michael told me  about  an interesting competition in  his town.   
+      It is called  'The Nicest Garden Competition'.  
+      Almost everyone in the town decides to participate in  the competition each year.    
+      But Joe Sander wins every time, because his garden is the most beautiful one in the town.  
+      There is  a other man called Bill .   
+      He work harder than Joe and alse has a pretty nice  garden with more flowers and vegetables.  
+      But why did  Joe always win?  
+      The reason is that his garden has a better layout.  
+      In his garden, people can see  neat paths and a wooden bridge  over a pool.  
+      In this way,  his garden looks more interesting and attractive.  
+      My friend Micheal likes garden too, but he hates hard work.  
+      So whenever he enters for the competition, he always wins a special  little prize.  
+      What is the sepcial  prize for?  
+      It is  the prize for the worst garden in the town.  
+
 ### 拓展
+
       self-mockery“⾃嘲”,  在⻄⽅⽂化中是⼀种常⻅的幽默形式．  
       我们中国⼈喜欢⾃谦being modest ，但是很多⻄⽅⼈⽣活中喜欢⾃嘲being self-mocking。　　
 
