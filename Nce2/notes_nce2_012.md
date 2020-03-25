@@ -140,6 +140,7 @@
            我们为 Alison 船长感到骄傲，也祝他好运！  
 
 ### 转述英语全文  
+
       Our beloved neighbour, Captain Charles Alison  will take part in an important race across the Atlantic.  
       And for your information,the following is what we plan to  do before his departure.  
       Captain Alison  will set out  from the Portsmouth at 8 o'clock tomorrow.  
@@ -147,11 +148,10 @@
       He will sail his famous little boat called Topsail.  
       As we know, even though the boat is very small, it has already sailed across the Atlantic several times.  
       I'm sure most of you have heard of Topsail,but have never seen it before.  
-      But,don't worry, you will have chance to see the boat yourself tomorrow morning .  
-      And then we will say goodbye and good luck to Alison captain at 8 o'clock.  
-      He will sail for tow months and  fright for the champion.  
-      We is proude with Alison captain and good luck to him!  
-
+      But,don't worry, you will have the opportunity  to see the boat in person tomorrow morning .  
+      Then we will say goodbye and Godspeed to captain Alison  at 8 o'clock.  
+      He is going to sail for two months and  fright for the champion.  
+      We are so proud of Captain Alison and we will keep our fingers crossed for him!  
 
 ### 文化拓展  
 
