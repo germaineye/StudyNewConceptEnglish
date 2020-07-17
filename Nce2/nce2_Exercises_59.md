@@ -100,3 +100,15 @@ Then he sits.  He barks.  Someone lets him out.
 它叫着让人把它放出去!从那以后, 它养成了另外一种坏习惯. 它从外面把门一打开, 就走进花园, 等着门
 自动关上. 这之后他就坐下汪汪叫起来, 直到有人来把它放出去. 出去之后, 它又马上把自己放进来, 接着
 再开始叫. 昨天, 我丈夫把大门卸了下来, 雷克斯很生气, 此后我们便再也没有见到它.
+
+Our dog, Rex, used to sit outside our front gate and bark.
+Every time he wanted to come into the garde **he would bark** until someone opened the gate.
+As the neighbours  complained of the noise, my husband spent weeks training him to press his paw on the latch to let himself in.
+Rex soon became an expert at opening the gate. 
+However, when I was going out shopping  last week, I noticed him in the garden near the gate.
+This time he **was barking** so that someone **woud let** hime out!
+Since then, he has developed another bad habit.
+As soon as he opens the gate from the outside, he comes into the garden and waits **until** the gate shuts.
+Then he sits and barks until someone lets him out.
+After this  he immediately lets himself in and **begins barking** again.
+Yesterday my husband has removed the gate and  Rex got **so annoyed**  we have not seen him since.
