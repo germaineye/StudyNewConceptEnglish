@@ -89,3 +89,16 @@ The Hubble telescope **was launched** into sapce by NASA on April 20, 1990, at a
 它很快就会给我们传送我们所见到过的、有关行星和远距离星系的最清晰的照片. 哈勃将告诉我们有关宇
 宙的年龄和大小的许多事情. 等到你读到这篇文章时, 敏锐的哈勃望远镜已经为我们送来了成千上万张精
 彩的照片.
+
+What is the special importance of a telescope in sapce?
+
+The Hubble telescope was launched into space by NASA on April 20, 1990 at a cost of over a  billion dollars.
+Right from the start there was trouble with the Hubble.
+The pictures it sent us were very disappointed because its main mirror was faulty!
+NASA is now  going to put the telescope right, so it will soon be sending up four astronauts to repair it.
+The shuttle 'Endeavour' will be taking the astronauts to the Hubble.
+A robot-arm from the Endeavour will grab the telescope and hold it while the astronauts make the necessary repairs.
+Of course, the Hubble is above the earth's atmosphere.
+So it will soon be sending us  the clearest pictures of the stars and distant galaxies that we have ever seen.
+The Hubble will tell us  a gread deal  about the age and size  of  the universe.
+By the time you read this, the Hubble's eagle eye will have sent us thousands and thousands of wonderful pictures.
