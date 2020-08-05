@@ -102,3 +102,15 @@ Exercise C
 同意马上就走, 但江伯却拒绝移动. 15个警察不得不用很大的力气把它推离主要街道. 警察虽然吃了苦头,
 但他们还是感到很有趣. “江伯一定有好几吨重, “一个警察事后这样说, “值得庆幸的是它没让我们抬它
 走. 当然, 我们应该逮捕它, 但由于它一贯表现很好, 这次我们饶了它. “
+
+Why did the police have to push Jumbo off the main street?
+Last Christmas, the circus owner, Jimmy Gates decided to take some presents to a children's hospital.
+Dressed up as Father Christmas and accompanied by a 'guard of honour' of six pretty girls,
+he set off down the main street of the city riding a baby elephant called Jumbo.
+he should have known that the police would **never** allow the sort of thing.
+A policeman approached Jimmy and told him he ought to have gone along a side street as Jumbo was holding up the traffic.
+Though Jimmy agreed to go at once, Jumbo refused to move.
+Fifteen policemen had to push very hard to get him off the main street.
+The police **had** a diffcult time, but they were most amused.
+'Jumbo must weigh a few tons.' said a policeman afterwards,'so it was fortunate that we didn't have to carry him.
+Of course, we should arrest him, but as he has a good record, we shall let him off this time.
