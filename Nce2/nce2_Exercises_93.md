@@ -181,3 +181,22 @@ The Statue of Liberty is one of the most famous monuments in the world. It was p
 
 Where was the Statue of Liberty made?
 One of the most famous monuments in the world, the Statue of Liberty, was presented to the United States of America in the nineteenth century by the people of Franch. The great statue which was designed by the sculptor Augueste Bartholdi, took ten years to complete. The actual figure was made of copper supported by a metal framework which had been especially constructed by Eiffel. Before it could be transported to the United States, a site had to be found for it and a pedestal had to be built. The site chosen was an island at the entrance of New York Harbour. By 1884, a statue which was 151 feet tall had been erected in Paris. The following year, it was taken to pieces and sent to America. By the end of October 1886, the statue had been put together again and it was officially presented to the American people by Bartholdi. Ever since then, the great monument has been a symbol of liberty for the millions of people who have passed through New York Harbour to make their homes in America.
+
+自由女神像是哪里制造的?
+世界上最著名的纪念碑之一的自由女神雕像是在 19 世纪时由法国人民赠送给美国的。这座由雕像家奥
+古斯特.巴索尔地设计的巨大雕像是用 10 年时间雕像刻成的。这座雕像的主体是用铜制成的，由艾菲尔特
+制的金属框架支撑着。在雕像被运往美国之前，必须为它选好一块场地，同时必须建造一个基座。场地选
+在了纽约港入口处的一个鸟上。到 1884 年，一座高度达 151 英尺的雕像在巴黎竖立起来了。第二年，它
+被拆成若干小块，运到美国。到 1886 年 10 月底，这座雕像被重新组装起来，由巴索尔地正式赠送给美国
+人民。从那时起，这座伟大的纪念碑对通过纽约港进入美国定居的千百万人来说就一直是自由的象征
+
+Where was the Statue of Liberty made?
+One of the most monuments in the world, the Statue of Liberty, was presented to the United States of America in nineteenth century by the people of France.
+The great statue which was designed by the sculptor Auguste Bartholdi, took ten years to complete.
+The actual figure was made of cooper supported by a metal framework which had been especially constructed by Eiffel.
+Before it could be transported to the United States, a site had to be found for it and a pedestal had to be built.
+The site chosen was an island at the entrance of New York Harbour.
+By 1884, a statue which was 151 feet tall had been erected in Paris.
+The following year, it was taken to pieces and sent to America
+By the end of October 1886, the statue had been put together again and it was officially presented to the American people by Bartholdi.
+Ever since then, the great monument has been a symbol of liberty for the millions of people who has passed through New York Harbour to make their homes in America.
