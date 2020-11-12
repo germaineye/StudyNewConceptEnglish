@@ -151,6 +151,8 @@ THe drooped tricycle, however, hindered two others just behind him. The two chil
 
 ## Key structures for text
 
+Blank
+
 ## Multiple choice questions
 
 1. a
@@ -195,3 +197,25 @@ Many pedal their tricycle but most of them prefer to push or drag them.
 Some children can cover the whole length of the pool without coming up for breath even once.
 Whether they will ever become future Olympic champions, only time will tell.
 Meanwhile they should encourage those among us who cannot five yards before they are gasping for air.
+
+孩子参加什么样的比赛？
+实验证明，儿童在很小的时候就可以开始学习游泳。在洛杉矶的一个特设的游泳池里，孩子们甚至在
+还没有学会走路时就已经能熟练地在水下屏住呼吸了。两个月的婴儿并未显得不愿意入水。他们很快便适
+应了游泳，以致能捡起池底的物品。这些幼小的游泳运动员非常喜爱的一种游戏是水下三轮车比赛。三轮
+车并排放在 7 英尺深的游泳池底上。孩子们比赛看谁先到达游泳池的另一端。很多孩子用脚蹬车，但多数
+孩子更愿意推或是拉着三轮车。有些孩子能够跑完游泳池的全长而不用露出水面换气。他们将来是否能成
+为奥林匹克的冠军，这只能由时间来作出回答。与此同时，他们对我们中的那些游不了 5 码就已喘不过气
+来的人应该是种鼓舞。
+
+What kind of race do the children compete in?
+Experiments have proved that the children can be instructed in swimming at a very early age.
+At a special swimming pool in Los Angeles, children become expert at holding their breath under water even before they can walk.
+Babies of two months old dot not appear to be reluctant to enter water.
+It is not long before they are so accustomed to swimming that they can pick up weigths from the floor of the pool.
+A game that is very popular with these young swimmers is the underwater tricycle race.
+Tricycles are lined up on the floor of pool seven feet under water.
+The children compete against each others to reach the other end of the pool.
+Many pedal their tricycles but most of them prefer to push or drag them.
+Some children can cover the whole length of the pool without coming up for breath even once.
+Whether they will ever become future Olympic champions, only time will tell.
+Meanwhile, they should encourage those among us who cannot swim five yards before they are gasping for air.
