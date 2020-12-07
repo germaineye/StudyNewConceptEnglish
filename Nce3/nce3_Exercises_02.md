@@ -180,22 +180,113 @@ Our vicar is always raising money for one cause or another, but he has never man
 
 ## Summary writing
 
+The vicar woke up with a start: the clock was striking the hours!
+It was one o'clock.
+The clock struck thirteen times before it stopped.
+The vicar went up into the clock tower.
+He took a torch with him.
+He saw Bill Wilkins in the clock tower.
+Bill Wilkins said he was trying to repair the bell.
+Bill willkins had succeeded in repairing the clock.
+The vicar was pleased.
+He offered the grocer a cup of tea.
+
+The vicar woke up with a start: the clock was striking the hours!
+It was one o'clock but the clock struck thirteen times before it stopped.
+The vicar taking a torch with him went into the clock tower and saw Bill Wilkins in it.
+Bill Wilkins said he was trying to repair the clock and had succeeded in repairing it.
+The vicar was pleased and offered the grocer a cup of tea.
+
+At one o'clock in the morning, the church clock striking the hours woke up as it struck thirteen times.
+The vicar went into the clock tower, taking a torch with him. He saw Bill Wilkins, the local grocer there and Bill explained he was tring to repair the clock but hadn't succeeded because at one o'clock it struck thirteen times.
+However, the vicar was pleased the bell was working and offered the grocer a cup of tea.
+
 ## Vocabulary
+
+vicar       --> priest, pastor  
+repaired    --> fixed  
+damaged     --> broken  
+silent      --> quiet  
+with a start    --> in surprise  
+caught sight of --> saw
 
 ## Composition
 
+A sticky business
+A small village the church big clock which used to strike the hours day and night suddenly stopped many years ago and has been silent ever since. However, one could explain why.
+One night, armed with a torch, the vicar climbed into the clock tower see what had happened.
+In the torchlight, he found that the clock had been invated by bees where had been full of honey and wax!
+A bee keeper was called to have removed the queen bee which the other bees followed.
+The clock was cleaned and it was working again. (95 words)
+
+We were used to hearing our church bell striking the hours in our small village. For as long as anyone could remember, the bell had struck the hours day and night. However, one night the church bell remained silent and the next morning we saw that the clock had stopped at exactly one a.m. Our clock was clearly demaged, but no one could explain how this had happened.
+Armed with a torch, our vicar climbed into the church tower to see what was going on. He heard a loud buzz as he went towards the clock and in the torchlight he found it had been ivaded by bees. He was luky they didn't sting him! He shone his torch into the great beel and saw that it was full of wax and honey. No wonder it wasn't working!
+A bee keeper was called in to deal with the situation. He immediately removed the queen bee to one of his bee hives and the other bees followed. The clock was cleaned and was soon working again. We not only enjoyed hearing it strike the hours day and night, but we enjoyed eating the honey as well.
+
 ## Letter writing
 
-blank
+1. It was very nice to hear from you.
+2. It's been a long time since I heard from you.
+3. Forgive me for not answering your letter before now.
+4. I am sorry you've been ill and hope you're feeling better now.
+5. I have not written before as I had lost your address.
+6. I hope you received my last letter.
 
 ## Key structures for text
 
+Blank
+
 ## Special difficulties
+
+1. I left home in a hurry so as not to miss the train.
+2. I suppose I shall finish this in the end.
+3. In the early moring there was not a person in sight.
+4. Shall I write in ink or in pencil?
+5. They haven't many interests in common.
+6. Why is that little girl in tears.
 
 ## Multiple choice questions
 
-## Sentence structure
-
-blank
+1. d
+2. b
+3. c
+4. ~~c~~ **b, always struck应该用过去式**
+5. d
+6. b
+7. c
+8. ~~b~~ **a, hearing , to为介词**
+9. b
+10. a
+11. a
+12. c
 
 ## Translation
+
+十三等于一
+教区的牧师听到钟声高兴吗？为什么？
+我们教区的牧师总是为各种各样的事筹集资金。但始终未能筹足资金把教堂的钟修好。
+教堂的钟很大，以前不分昼夜打点报时，但很多年前遭到毁坏，从此便无声无息了。
+一天夜里，我们的牧师突然被惊醒了，大钟又在 “打点 ”报时了！他一看表，才 1 点钟，
+可是那钟一边敲了 13 下才停。牧师拿着一支电筒走上钟楼想去看看究竟发生了什么事情。
+借着电筒光。他看见一个人，马上认出那是本地杂货店主经比尔 . 威尔金斯。
+“你究竟在这上面干什么，比尔？ ”牧师惊讶地问。
+“我想把这口钟修好， ”比尔回答说。 “好几个星期了，我天天夜里到钟楼上来。嗯，我
+是想让你大吃一惊。 ”
+“你确实使我大吃了一惊！ ”牧师说， “也许同时你把村里所有的人都吵醒了。不过，钟
+又能报时了，我还是很高兴的。 ”
+“问题就在这里，牧师， ”比尔回答说。 “不错，钟能报时了，但是，恐怕每到 1 点钟，
+它总要敲 13 下，对此我已无能为力了。 ”
+“大家慢慢就习惯了， 比尔， ”牧师说。 “ 13下是不如 1 下好， 但总比 1 下也不敲强。 来，
+咱们下楼去喝杯茶吧。“
+
+Thirteen equals one
+Was the vicar pleased that the clock striking? Why?
+Our vicar is always raising money for one cause or another, but he has never managed to get enough money to have the church clock repaired. The big clock which used to strike the hours day and night was damaged many years ago and has been silent ever since. One night, our vicar woke up with a start: the clock was striking the hours! Looking at his watch, he saw that it was one o'clock, but the bell struck thirteen times before it stopped. Armed with a torch, the vicar went up into the clock tower to see what was going on. In the torchlight, he caught sight of a figure whom he immediately recognized as Bill Wilkins, our local grocer.
+'Whatever are you doing up here Bill?' asked the vicar in surprise.
+'I'm tring to repair the bell.' answered Bill, 'I've been coming up here night after night for weeks now.
+You see, I was hoping to give you a surprise.'
+'You certainly did give me a surprise!' said the vicar,'You have probably woken up everyone in the village as well.
+Still, I'm glad the bell is working again.'
+'That's the trouble, vicar.' answered Bill,'It's working all right,but I'm afraid that at one clock it will strike thirteen times and there's nothing I can do about it.'
+'We'll get used to that, Bill.' said the vicar,'Thirteen is not as good as one, but it's better than nothing.
+Now let's go downstairs and have a cup of tea.
