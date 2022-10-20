@@ -1,0 +1,65 @@
+index 
+indices
+relevant 相关的，
+irrelevant　[ɪˈreləvənt]  adj. 无关紧要的;不相关的   派生词： irrelevantly adv.
+consider    [kənˈsɪdər]  v. (尤指为作出决定而)仔细考虑，细想;认为;以为;觉得;体谅;考虑到;顾及
+ideal       [aɪˈdiːəl]  adj. 完美的;理想的;最合适的;想象的;不切实际的  n.理想;看似完美的思想(或标准);完美的人(或事物)
+a great deal 许多，大量
+proper      [ˈprɑːpər]  adj. 正确的;恰当的;符合规则的; n. [宗教][常用P-]特定节日等用的仪式;弥撒（祈祷、礼仪等）书的章节;特赞
+newcomers   [ˈnuˌkʌmərz]  n. 新手，后来者;新移民;新加入者
+conventional  [kənˈvenʃənl]  adj.依照惯例的;遵循习俗的;墨守成规的;普通平凡的;传统的;习惯的;非核的;常规的
+by convention 按照惯例, 按照约定
+convenient  [kənˈviːniənt]  adj. 实用的;便利的;方便的;省事的;附近的;近便的;容易到达的
+explicitly   [ɪkˈsplɪsətli]  adv.显式地，明确地；明白地
+implicitly   [ɪmˈplɪsətli]  adv.隐式地，暗中地；不明显地；含蓄地；蕴涵地;无疑问地；无保留地；绝对地
+assuming    [əˈsuːmɪŋ]  傲慢的;假使;想当然
+advantage   [ədˈvæntɪdʒ]  n. 有利条件;有利因素;优势;优点;(局末平分后)占先;优势分 v.使处于有利地位;有利于;有助于
+vector      [ˈvektər]  n.矢量;向量;(传染疾病的)介体，载体;(航空器的)航线
+manipulate  [məˈnɪpjuleɪt]  v. (暗中)控制，操纵，影响;(熟练地)操作，使用;正骨;治疗脱臼
+respective  [rɪˈspektɪv]  adj. 分别的;各自的
+increment    [ˈɪŋkrəmənt]  n. 定期的加薪;增量;增加
+decrement     [dɪˈkrɪmənt]  n. 消耗，减少
+successive   [səkˈsesɪv] adj. 连续的;接连的;相继的
+alternatively    [ɔːlˈtɜːrnətɪvli]  adv. (引出第二种选择或可能的建议)要不，或者
+enhance [ɪnˈhæns]  v. 提高;增强;增进
+elaborate   [ɪˈlæbərət , ɪˈlæbəreɪt]  adj.复杂的;详尽的;精心制作的 v. 详尽阐述;详细描述;详细制订;精心制作 
+precede  [prɪˈsiːd]  v. 在…之前发生(或出现);先于;走在…前面
+inversion   [ɪnˈvɜːrʒn]  n.倒置;颠倒;倒转
+permit      [pərˈmɪt , ˈpɜːrmɪt]  v.允许;准许;使有可能 n. 许可证，特许证(尤指限期的)
+furthermore [ˌfɜːrðərˈmɔːr]  adv. 此外;而且;再者
+intuitive   [ɪnˈtuːɪtɪv]  adj. 凭直觉得到的;直觉的;有直觉力的;易懂的;使用简便的
+illustrate  [ˈɪləstreɪt]  v. 加插图于;给(书等)做图表;(用示例、图画等)说明，解释;表明…真实;显示…存在
+procedure   [prəˈsiːdʒər]  n. (正常)程序，步骤;(商业、法律或政治上的)程序;手术
+lexicon     [ˈleksɪkɑːn]  n. 全部词汇;词汇表;(尤指希腊语或希伯来语等古代语言的)词典，字典
+reverse     [rɪˈvɜːrs]  v. 颠倒;使反转;使次序颠倒 n. 相反的,后面;背面;反面;倒挡 adj. 相反的;反面的;反向的;背面的;后面的
+algorithm   [ˈælɡərɪðəm]  n. 算法;计算程序 
+approach    [əˈproʊtʃ]  v. 靠近，接近; n. 方式，方法
+routine     [ruːˈtiːn]  n. 常规;正常顺序;生活乏味;无聊; adj. 常规的;例行公事的;日常的;平常的;正常的;毫不特别的;乏味的;平淡的
+indication  [ˌɪndɪˈkeɪʃn]  n. 表明;标示;显示;象征
+skimp       [skɪmp]  v. 节省，吝惜(时间、钱等)
+issue       [ˈɪʃuː]  n. 重要议题;争论的问题;问题，担忧 v. 宣布;公布;发出;(正式)发给，供给;(尤指通过正式文件)将…诉诸法律
+actual      [ˈæktʃuəl]  adj. 真实的;实际的;
+represent   [ˌreprɪˈzent]  v. 代表;作为…的代言人;维护…的利益;等于;相当于;意味着
+consist     [kənˈsɪst]  v. 由…组成;由…构成;在于;存在于
+consistent  [kənˈsɪstənt]  adj. 一致的;始终如一的;连续的;持续的;
+castigate   [ˈkæstɪɡeɪt]  v. 严厉批评;申斥
+involve     [ɪnˈvɑːlv]  v. 包含;需要;使成为必然部分(或结果);牵涉;牵连;影响;(使)参加，加入
+embedding
+responsibility
+extracted
+vice versa
+adjacent
+participate
+overlap
+portable
+precisely
+encounter
+symbolic
+substituted
+oblivious
+overhead
+analog
+specification
+call-by-value   值调用
+semantic     [sɪˈmæntɪk]  adj. 语义的；语义学的
+rudimentary
