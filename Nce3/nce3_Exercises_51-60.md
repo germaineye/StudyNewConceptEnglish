@@ -1516,200 +1516,890 @@ We still think it a miracle that they were able to do so.
 
 中译英
 第56课 河流，我们的邻居
-
+Lesson 56 Our neighbour, the river
 
     形成我们农场东部边界的一条河流一直在我们生活中发挥着重要作用
-
+    The river which forms the eastern boundary of our farm has always played an important part in our lives.
 要是没有这条河，我们就无法生存下去
-
+Without it we could not make a living.
 泉水只能满足家庭生活用水，因此我们必须从河里抽水以用于农业生产
-
+This is only enough spring water to supply the needs of the house, so we have to pump from the river for farm use.
 我们向那条河倾诉我们的秘密
-
+We tell the river all our secrets.
 我们本能地懂得，就像养蜂人和他的蜜蜂那样，要是我们不把生活中的重大的事件告诉那条河，就可能大祸临头
-
+We know instinctively, just as beekeepers with their bees, that misfortune might overtake us if the important events of our lives were not related to it.
 　　夏天，我们为这条河举办特殊的生日宴会
-
+    We have special river birthday parties in the summer.
 有时，我们溯流而上来到我们喜爱的回水河汊举办;有时在船坞举办。那船坞是农场一位前辈在一块草地上盖的，草地紧挨着一个专供游泳、跳水的深水池。
-
+Sometimes we go upstream to a favourite backwater, sometimes we have our party at the boathouse, which a predecessor of ours at the farm built in the meadow hard by the deepest pool for swimming and diving.
 天气炎热时，我们便选择在半夜举办生日聚会，这种聚会是最令人激动的。
-
+In a heat wave we choose a midnight birthday party and that is the most exciting of all.
 我们在河边迎接一年四季, 春天在河边为最年轻的姑娘戴上花冠，夏天在河边欢庆“仲夏前夜”，秋天在河边丰收而感恩，冬天往河中抛撒一个冬表花环
-
+We welcome the seansons by the riverside, crowning the youngest girl with flowers in the spring, holding a summer festival on Midsummer Eve, giving thanks for the harvest in the autumn, and throwing a holly wreath into the current in the winter.
 　　久雨这后，河水会泛滥成灾，
-
+    After a long period of rain the river may overflow its banks.
 但是在我们这里，气候很少发生异常，河水极少泛滥。
-
+This is a rare occurrence as our climate seldom goes to extremes.
 值得庆幸的是，只有低洼的受到洪水影响，而低洼地在我们农场比例很小, 其他农场地势欠佳，洪水有时会给农场主带来灾难。
-
+We are lucky in that only the lower fields, which make up a very small proportion of our farm, are effected by flooding, but other farms are less favourably sited, and flooding can sometimes spell disaster for their owners.
 　　有一年冬天，天气不好，我们眼看着河水浸没了地势较低的草场
-
+    One bad winter we watched the river creep up the lower meadows.
 所有的牲口已提前转移到畜圈里，没有造成什么损失
-
+All the cattle had been moved into stalls and we stood to lose little.
 不过，我们很为我们的近邻担心,他们的农场地势低洼，而且他们又新来乍到
-
+We were, however, worried about our nearest neighbours, whose farm was low lying and who were newcomers to the district.
 由于洪水造成了电话中断，我们无法了解他们情况
-
+As the floods had put the telephone out of order, we could not find out how they were managing.
 从顶楼窗口看去，我们农场与他们农场接壤处的那段河流一览无余, 在最紧急的时刻，我们轮流监视那段河流的险情
-
+From an attic window we could get a sweeping view of the river where their land joined ours, and at the most critical juncture we took turns in watching that point.
 灾难的第一迹象是一只死羊顺流而下，
-
+The first sign of disaster was a dead sheep floating down.
 接着一匹活马勇敢地与水搏击, 但我们担心，洪水力量将使它上岸之前就筋疲力尽了
-
+Next came a horse, swimming bravely, but we were afraid that the strength of the current would prevent its landing anywhere before it became exhausted.
 突然，出现了一只筏子，看起来很像诺亚方舟，上面载着他们全家老小，还有几只母鸡、几只狗，一只猫与一只鸟笼，那里头有一只小鸟
-
+Suddenly a raft appeared, looking rather like Noah's ark, carrying the whole family, a few hens, the dogs, a cat, and a bird in a cage.
 我们意识到他们一定是被不断上涨的洪水吓坏了。因为他们的房子地基牢固，即使洪水几乎灭顶也不会倒塌
-
+We realized that they must have become unduly frightened by the rising flooding, for their house, which had sound foundations, would have stood stoutly eve if it had been almost submerged. 
 我家的男人们手拿船篙过被水淹没草场，希望能够钩住筏子一角，将它拽出激流，拖回岸边
-
+The men of our family waded down through our flooded meadows with boathooks, in the hope of being able to grapple a corner of the raft and pull it out of the current towards our bank.
 他们终于成功了。至今我们仍认为这是个奇迹
+We still think it a miracle that they were able to do so.
+
 
 
 第56课 河流，我们的邻居
-
+Lesson 56 Our neighbour, the river
 
     形成我们农场东部边界的一条河流一直在我们生活中发挥着重要作用
-
+    The river which forms the eastern boundary of our farm has always played an important part in our lives.
 要是没有这条河，我们就无法生存下去
-
+Without it we could not make a living.
 泉水只能满足家庭生活用水，因此我们必须从河里抽水以用于农业生产
-
+There is only enough spring water to supply the needs of the house, so we have to pump from the river for farm use.
 我们向那条河倾诉我们的秘密
-
+We tell the river all our secrets.
 我们本能地懂得，就像养蜂人和他的蜜蜂那样，要是我们不把生活中的重大的事件告诉那条河，就可能大祸临头
-
+We know instinctively, just as beekeepers with their bees, that misfortune might overtake us if the important events of our lives were not related to it.
 　　夏天，我们为这条河举办特殊的生日宴会
-
+    We have special river birthday parties in the summer.
 有时，我们溯流而上来到我们喜爱的回水河汊举办;有时在船坞举办。那船坞是农场一位前辈在一块草地上盖的，草地紧挨着一个专供游泳、跳水的深水池。
-
+Sometimes we go upstream to a favourite backwater; sometimes we have our party at the boathouse, which a predecessor of ours at the farm built in the meadow hard by the deepest pool for swimming and diving.
 天气炎热时，我们便选择在半夜举办生日聚会，这种聚会是最令人激动的。
-
+In a heat wave we choose a midnight birthday party and that is the most exciting of all.
 我们在河边迎接一年四季, 春天在河边为最年轻的姑娘戴上花冠，夏天在河边欢庆“仲夏前夜”，秋天在河边丰收而感恩，冬天往河中抛撒一个冬表花环
-
+We welcome the seasons by the riverside, crowning the youngest girl with flowers in the spring, holding a summer festival on Midsummer Eve, giving thanks for the harvest in the autumn, and throwing the holly wreath into the current in the winter.
 　　久雨这后，河水会泛滥成灾，
-
+    After a long period of rain the river may overflow its banks.
 但是在我们这里，气候很少发生异常，河水极少泛滥。
-
+This a rare occurrence as our climate seldom goes to extremes.
 值得庆幸的是，只有低洼的受到洪水影响，而低洼地在我们农场比例很小, 其他农场地势欠佳，洪水有时会给农场主带来灾难。
-
+We are lucky in that only the lower fields, which make up a very small propartion of our farm, are effected by flooding, but other farms are less favourably sited, and flooding can sometimes spell disaster for their owners.
 　　有一年冬天，天气不好，我们眼看着河水浸没了地势较低的草场
-
+    One bad winter we watched the river creep up the lower meadows.
 所有的牲口已提前转移到畜圈里，没有造成什么损失
-
+All the cattle had been moved into stalls and we stood to lose little.
 不过，我们很为我们的近邻担心,他们的农场地势低洼，而且他们又新来乍到
-
+We were, however, worried about our nearest neighbours, whose farm was low lying and who were newcomers to the district.
 由于洪水造成了电话中断，我们无法了解他们情况
-
+As the floods had put the telephone out of order, we could not find out how they were managing.
 从顶楼窗口看去，我们农场与他们农场接壤处的那段河流一览无余, 在最紧急的时刻，我们轮流监视那段河流的险情
-
+From an attic window we could get a sweeping view of the river where their land joined ours, and at the most critical juncture we took turns in watching that point.
 灾难的第一迹象是一只死羊顺流而下，
-
+The first sign of disaster was a dead sheep floating down.
 接着一匹活马勇敢地与水搏击, 但我们担心，洪水力量将使它上岸之前就筋疲力尽了
-
+Next came a horse, swimming bravelys, but we were afraid that the strength of the current would prevent its landing anywhere before it became exhaused.
 突然，出现了一只筏子，看起来很像诺亚方舟，上面载着他们全家老小，还有几只母鸡、几只狗，一只猫与一只鸟笼，那里头有一只小鸟
-
+Suddenly a raft appeard, looking rather like Noah's ark, carrying the whole family, a few hens, the dogs, a cat, and a bird in a cage.
 我们意识到他们一定是被不断上涨的洪水吓坏了。因为他们的房子地基牢固，即使洪水几乎灭顶也不会倒塌
-
+We realized that they must have become unduly frightened by the rising flood, for their house, which had sound foundations, would have stood stoutly even if it had been almost submerged.
 我家的男人们手拿船篙过被水淹没草场，希望能够钩住筏子一角，将它拽出激流，拖回岸边
-
+The men of our family waded down throught our flooded meadows with boathooks, in the hope of being able to grapple a corner of the raft and pull it out of the current towards our bank.
 他们终于成功了。至今我们仍认为这是个奇迹
-
+We still think it a miracle that they were able to do so.
 
 第56课 河流，我们的邻居
-
-
-    形成我们农场东部边界的一条河流一直在我们生活中发挥着重要作用
-
-要是没有这条河，我们就无法生存下去
-
-泉水只能满足家庭生活用水，因此我们必须从河里抽水以用于农业生产
-
-我们向那条河倾诉我们的秘密
-
-我们本能地懂得，就像养蜂人和他的蜜蜂那样，要是我们不把生活中的重大的事件告诉那条河，就可能大祸临头
-
-　　夏天，我们为这条河举办特殊的生日宴会
-
-有时，我们溯流而上来到我们喜爱的回水河汊举办;有时在船坞举办。那船坞是农场一位前辈在一块草地上盖的，草地紧挨着一个专供游泳、跳水的深水池。
-
-天气炎热时，我们便选择在半夜举办生日聚会，这种聚会是最令人激动的。
-
-我们在河边迎接一年四季, 春天在河边为最年轻的姑娘戴上花冠，夏天在河边欢庆“仲夏前夜”，秋天在河边丰收而感恩，冬天往河中抛撒一个冬表花环
-
-　　久雨这后，河水会泛滥成灾，
-
-但是在我们这里，气候很少发生异常，河水极少泛滥。
-
-值得庆幸的是，只有低洼的受到洪水影响，而低洼地在我们农场比例很小, 其他农场地势欠佳，洪水有时会给农场主带来灾难。
-
-　　有一年冬天，天气不好，我们眼看着河水浸没了地势较低的草场
-
-所有的牲口已提前转移到畜圈里，没有造成什么损失
-
-不过，我们很为我们的近邻担心,他们的农场地势低洼，而且他们又新来乍到
-
-由于洪水造成了电话中断，我们无法了解他们情况
-
-从顶楼窗口看去，我们农场与他们农场接壤处的那段河流一览无余, 在最紧急的时刻，我们轮流监视那段河流的险情
-
-灾难的第一迹象是一只死羊顺流而下，
-
-接着一匹活马勇敢地与水搏击, 但我们担心，洪水力量将使它上岸之前就筋疲力尽了
-
-突然，出现了一只筏子，看起来很像诺亚方舟，上面载着他们全家老小，还有几只母鸡、几只狗，一只猫与一只鸟笼，那里头有一只小鸟
-
-我们意识到他们一定是被不断上涨的洪水吓坏了。因为他们的房子地基牢固，即使洪水几乎灭顶也不会倒塌
-
-我家的男人们手拿船篙过被水淹没草场，希望能够钩住筏子一角，将它拽出激流，拖回岸边
-
-他们终于成功了。至今我们仍认为这是个奇迹
-
-
-第56课 河流，我们的邻居
-
+Lesson 56 Our neighbour, the river
 
     形成我们农场东部边界的一条河流一直在我们生活中发挥着重要作用
-
+    The river which forms the eastern boundary of our farm has always played an important part in our lives.
 要是没有这条河，我们就无法生存下去
-
+Without it we could not make a living.
 泉水只能满足家庭生活用水，因此我们必须从河里抽水以用于农业生产
-
+There is only enough spring water to supply the needs of the house, so we have to pump from the river for farm use.
 我们向那条河倾诉我们的秘密
-
+We tell the river all our secrets.
 我们本能地懂得，就像养蜂人和他的蜜蜂那样，要是我们不把生活中的重大的事件告诉那条河，就可能大祸临头
-
+We know instinctively, just as beekeepers with their bees, that misfortune might overtake us if the important events of our lives were not related to it.
 　　夏天，我们为这条河举办特殊的生日宴会
-
+    We have special river birthday parties in the summer.
 有时，我们溯流而上来到我们喜爱的回水河汊举办;有时在船坞举办。那船坞是农场一位前辈在一块草地上盖的，草地紧挨着一个专供游泳、跳水的深水池。
-
+Sometimes we go upstream to a favourite backwater; sometimes we have our party at the boathouse which a predecessor of ours at the farm built in the meadow hard by the deepest pool for swimming and diving.
 天气炎热时，我们便选择在半夜举办生日聚会，这种聚会是最令人激动的。
-
+In a heat wave we choose a midnight birthday party and that is the most exciting of all.
 我们在河边迎接一年四季, 春天在河边为最年轻的姑娘戴上花冠，夏天在河边欢庆“仲夏前夜”，秋天在河边丰收而感恩，冬天往河中抛撒一个冬表花环
-
+We welcome the seasons by the riverside, crowning the youngest girl with flowers in the spring, holding a summer festival on Midsummer Eve, giving thanks for the harvest in the autumn, and throwing a holly wreath into the current in the winter.
 　　久雨这后，河水会泛滥成灾，
-
+    After a long period of rain the river may overflow its banks.
 但是在我们这里，气候很少发生异常，河水极少泛滥。
-
+This is a rare occurrence as our climate seldom goes to extremes.
 值得庆幸的是，只有低洼的受到洪水影响，而低洼地在我们农场比例很小, 其他农场地势欠佳，洪水有时会给农场主带来灾难。
-
+We are lucky in that only lower fields, which make up a very small proportion of our farm, are effected by flooding, but other farms are less favourably sited, flooding can sometimes spell the disaster for their owners.
 　　有一年冬天，天气不好，我们眼看着河水浸没了地势较低的草场
-
+    One bad winter we watched the river creep up the lower meadows.
 所有的牲口已提前转移到畜圈里，没有造成什么损失
-
+All the cattle had been moved into stalls and we stood to lose little.
 不过，我们很为我们的近邻担心,他们的农场地势低洼，而且他们又新来乍到
-
+We were, however, worried about our nearest neighbours, whose farm was low lying and who were newcomers to the district.
 由于洪水造成了电话中断，我们无法了解他们情况
-
+As the floods had put the telephone out of order, we could not find out how they were managing.
 从顶楼窗口看去，我们农场与他们农场接壤处的那段河流一览无余, 在最紧急的时刻，我们轮流监视那段河流的险情
-
+From an attic window we could get a sweeping view of the river where their land joined ours, and at the most critical juncture we took turns in watching that point.
 灾难的第一迹象是一只死羊顺流而下，
-
+The first sign of disaster was a dead sheep floating down.
 接着一匹活马勇敢地与水搏击, 但我们担心，洪水力量将使它上岸之前就筋疲力尽了
-
+Next came a horse, swimming bravely, but we were afraid that the strength of the current prevent its landing anywhere before it became exhausted.
 突然，出现了一只筏子，看起来很像诺亚方舟，上面载着他们全家老小，还有几只母鸡、几只狗，一只猫与一只鸟笼，那里头有一只小鸟
-
+Suddenly a raft appeared, looking rather like the Noah's ack, carrying the whole family, a few hens, the dogs, a cat, and a bird in a cage.
 我们意识到他们一定是被不断上涨的洪水吓坏了。因为他们的房子地基牢固，即使洪水几乎灭顶也不会倒塌
-
+We realized that they must have become unduly frightened by the rising flooding, for their house, which had sound foundations, would have stood stoutly even if it had been almost submerged.
 我家的男人们手拿船篙过被水淹没草场，希望能够钩住筏子一角，将它拽出激流，拖回岸边
-
+The men of our family waded down through our flooded meadow with boathooks, in the hope of being able to grapple corner of the raft and pull it out of the current towards our bank.
 他们终于成功了。至今我们仍认为这是个奇迹
+We still think it a miracle that they were able to do so.
+
+
+-------------------------------------- 2022-11-1 --------------------------------------------------
+
+英译中
+Lesson 57 Back in the old country
+　　重返故里
+　　Listen to the tape then answer the question below.
+　　听录音，然后回答以下问题。
+　　Did the narrator find his mother's grave?
+    叙述人找到他母亲的坟墓了吗？
+　　I stopped to let the car cool off and to study the map. 
+    我停下来让车凉快一下并研究一下地图
+I had expected to be near my objective by now, but everything still seemed alien to me. 
+现在离我期待的目标很近了，但每件事情仍然让我觉得陌生
+I was only five when my father had taken me abroad, and that was eighteen years ago. 
+我爸带我出国时我只有5岁，那里18年前
+When my mother had died after a tragic accident, he did not quickly recover from the shock and loneliness. 
+当我的母亲因一场悲惨的意外过世，他一下子没法从震惊和孤独中恢复
+Everything around him was full of her presence, continually reopening the wound. 
+他周围的每一件事都有她有的存在，不断的让他触景伤情
+So he decided to emigrate. 
+因此他决定移民
+In the new country he became absorbed in making a new life for the two of us, so that he gradually ceased to grieve. 
+在新的国家，他专心建设我们两个的新生活，因此他逐渐走出悲痛
+He did not marry again and I was brought up without a woman's care; but I lacked for nothing, for he was both father and mother to me. 
+他没有再婚，我是单亲家庭长大，但是我什么都不缺，他对我来讲又是爸爸也是妈妈
+He always meant to go back on day, but not to stay. 
+他总是想有一天回去，而不是留下来
+His roots and mine had become too firmly embedded in the new land. 
+我们已经在新的大陆上扎根
+But he wanted to see the old folk again and to visit my mother's grave. 
+但是他想看看乡亲，再看看母亲的坟墓
+He became mortally ill a few months before we had planned to go and, when he knew that he was dying, he made me promise to go on my own.
+我们计划去之前的几个月他患了重病， 当他知道自己快要死了，他让我自己保证要继续去
+　　I hired a car the day after landing and bought a comprehensive book of maps, which I found most helpful on the cross-country journey, but which I did not think I should need on the last stage. 
+落地后我租了一辆车然后买了一本详细的地图，它是我发现在跨国旅行中最有用的，但我不认为我在最后会用上
+It was not that I actually remembered anything at all. 
+它不是因为我真的能记得所有事情
+But my father had described over and over again what we should see at every milestone, after leaving the nearest town, so that I was positive I should recognize it as familiar territory. 
+而是因为我父亲已经再三给我描述了，离开最近的一个城镇后，我们将看到的第每一个里程碑，以至于我非常的有信心我应该认识它就像是熟悉的领地
+Well, I had been wrong, for I was now lost.
+哎，我已经错了，因为我现在迷路了
+　　I looked at the map and then at the milometer. 
+    我看着地图然后看了看里程表
+I had come ten miles since leaving the town, and at this point, according to my father, I should be looking at farms and cottages in a valley, with the spire of the church of our village showing in the far distance. 
+离开那个镇我已经走了20英里，在这个点，根据我父亲说的，在一个山谷中应该能看到农田，农舍，在远一点的地方露出我们村子教堂的尖顶
+I could see no valley, no farms, no cottages and no church spire -- only a lake. 
+我看不山谷，农田，农舍，也没有教堂尖顶，只有一个湖
+I decided that I must have taken a wrong turning somewhere. 
+我判断我肯定是哪个地方转错了
+So I drove back to the town and began to retrace the route, taking frequent glances at the map. 
+因此我又开回那个镇，开始重走路线，偶尔看一下地图
+I landed up at the same corner. 
+我最终达到同样一个拐角
+The curious thing was that the lake was not marked on the map. 
+奇怪的是这个湖地图上没有标记
+I felt as if I had stumbled into a nightmare country, as you sometimes do in dreams. 
+我感觉仿佛跌跌撞撞坠入噩梦中一样，就像你有时在梦中做的那样
+And, as in a nightmare, there was nobody in sight to help me. 
+而且，就像在噩梦里，这没有人可以帮我
+Fortunately for me, as I was wondering what to do next, there appeared on the horizon a man on horseback, riding in my direction. 
+幸运的是，正当我想知道下一步做什么的时候，在地平线处出现了一个骑马的男人，朝着我的方向骑来
+I waited till he came near, then I asked him the way to our old village. 
+我等他靠近，然后问他这条路是否通向我的老村子
+He said that there was now no village. 
+他说现在这里没有村庄
+I thought he must have misunderstood me, so I repeated its name. 
+我想他肯定是误解了，因此我重说村子的名字
+This time he pointed to the lake. 
+这次他指着这个湖
+The village no longer existed because it had been submerged, and all the valley too. 
+村子不存了，因为他已经被淹没了，所有的山谷也被淹没了
+The lake was not a natural one, but a man-made reservoir.
+这不是一个自然湖，而是一个人工水库
+
+
+
+中译英
+第57课 重返故里
+Lesson 57 Back in the old country
+
+    我停下车，让汽车发动机冷却一下，同时查看一下地图
+    I stopped to let the car cool off and then to study the map.
+我本想离目的地已经不远，但周围一切对我仍很陌生
+I had expected to be near my objective by now, but everything still seemed alien to me.
+我5岁那年，父亲就带我出了国，那是18年前的事了
+I was only five when my father had taken me abroad, and that was eighteen years ago.
+当时我母亲在一次事故中惨死，父亲未能很快从悲痛与孤独中恢复过来
+When my mother had died after a tragic accident, he did not quickly recover from the shock and loneliness.
+他身边的一切都是母亲的影子不断勾起他的伤感,于是他决定移居他国
+Everything around him was full of her presence, continually reopening the wound. So he decided to emigrate.
+在这个新的国家里，父亲专心致志地为我们俩开创一种新的生活，慢慢地不伤心了
+In the new country he became absorbed in making a new life for the two of us, so that he gradually ceased to grieve.
+父亲没有再娶，因此，我在没有母亲的环境里长大成人;但我却什么都不缺，他既当父亲又当母亲
+He did not marry again and I was brought up without a woman's care; but I lacked for nothing, for he was both father and mother to me.
+他总想将来回国看看，但却不愿长期住下去，
+He always meant to go back one day, but not to stay.
+因为他与我一样已经把根深深地扎在异国的土地上
+His roots and mine had become too firmly embedded in the new land.
+但是，他想看一看家乡父老乡亲，为我的母亲扫墓。
+But he wanted to see the old folk again and to visit my mother's grave.
+就在他计划回国的前几个月，他突然身患绝症。他知道自己已奄奄一息，于是他要我答应一定单独回故乡一趟
+He became mortally ill a few months before we had planned to go and, when he knew that he was dying, he made me promise to go on my own.
+　　我下飞机后租了一辆车，并买了一本详尽的地图册,在乡间行车途中，我觉得它非常有用，但快到家了，我倒觉得它没什么用了
+    I hired a car the day after landing and bought a comprehensive book of maps, which I found most helpful on the cross-country journey, but which I did not think I should need on the last stage.
+这倒并非是我背熟了地图，而是父亲曾详细给我讲了，在过了离故乡最近的那个小镇后，在每一个路标处可见到些什么。因此，我相信这段路对我来说会是很熟悉的
+It was not that I actually remembered anything at all. But my father had described over and over again what we should see at every milestone, after leaving the nearest town, so that I was positive I should recognize it as familiar territory.
+唉，实际我错了，我现在迷路了
+Well, I had been wrong, for I was now lost.
+　　我看了看地图，又查了一下里程表
+    I looked at the map and then at the milometer.
+从小镇出来，我走了10英里。照父亲的说法，我面前应是一个山谷，有农场与村舍，还可远远望见老家村子里的教堂的尖顶
+I had come ten miles since leaving the town, and at this point, according to my father, I should be looking at farms and cottages in a valley, with the spire of the church of our village showing in the far distance.
+可现在我却看不出山谷，看不见农场，看不见农舍，也看见教学尖顶，看见只是一片湖泊
+I could see no valley, no farms, no cottages and no church spire -- only a lake.
+我想一定是什么地方拐错了弯儿
+I decided that I must have taken a wrong turning somewhere.
+于是我驾车返回小镇，重新按路线行驶
+So I drove back to the town and began to retrace the route, taking frequent glances at the map.
+结果又来到刚才那个拐弯处
+I landed up at the same corner.
+奇怪的是那个湖没有在地图上标出
+The curious thing was that the lake was not marked on the map.
+我感到自己就像平时作梦那样迷迷糊糊地闯进了恶梦境地。
+I felt as if I had stumbled into a nightmare country, as you sometimes do in dreams.
+就像在恶梦里一样，见不到一个人可以帮助我。
+And, as in a nightmare, there was nobody in sight to help me.
+不过，我是幸运的，正当我走投无路之时，从天边出现一个骑马的人向我骑来
+Fortunately for me, as I was wondering what to do next, there appeared on the horizon a man on horseback, riding in my direction.
+等他走近了，问他去老家的路
+I waited till he came near, then I asked him the way to our old village.
+他说那村子已经没有了
+He said that there was now no village.
+我想他一定误解了我的意思，于是又说一遍村庄的名字
+I thought he must have misunderstood me, so I repreated its name.
+这次他用手指了一下那个湖
+This time he pointed to the lake.
+村庄已不复存在，因为已经为水所淹，山谷也被水淹没了
+The village no longer existed because it had been submerged, and all the valley too.
+这不是一个天然湖泊，是一座人工修建的水库
+The lake was not a nature one, but a man-made reservoir.
+
+
+第57课 重返故里
+Lesson 57 Back in the old country
+
+    我停下车，让汽车发动机冷却一下，同时查看一下地图
+    I stopped to let the car cool off and to study the map.
+我本想离目的地已经不远，但周围一切对我仍很陌生
+I had expected to be near my objective by now, but everything still seemed alien to me.
+我5岁那年，父亲就带我出了国，那是18年前的事了
+I was only five when my father had taken me abroad, and that was eighteen years ago.
+当时我母亲在一次事故中惨死，父亲未能很快从悲痛与孤独中恢复过来
+When my mother had died after a tragic accident, he did not quickly recover from the shock and loneliness.
+他身边的一切都是母亲的影子不断勾起他的伤感,于是他决定移居他国
+Everything around him was full of her presence, continually reopening the wound. So he decided to emigrate.
+在这个新的国家里，父亲专心致志地为我们俩开创一种新的生活，慢慢地不伤心了
+In the new country He became absorbed in making a new life for the two of us, so that he gradually ceased to grieve.
+父亲没有再娶，因此，我在没有母亲的环境里长大成人;但我却什么都不缺，他既当父亲又当母亲
+He did not marry again and I was brought up without a woman's care; but I lacked for nothing, for he was both father and mother to me.
+他总想将来回国看看，但却不愿长期住下去，
+He always meant to go back one day, but not to stay.
+因为他与我一样已经把根深深地扎在异国的土地上
+His roots and mine had become too firmly embedded in the new land.
+但是，他想看一看家乡父老乡亲，为我的母亲扫墓。
+But he wanted to see the old folk again and to visit my mother's grave.
+就在他计划回国的前几个月，他突然身患绝症。他知道自己已奄奄一息，于是他要我答应一定单独回故乡一趟
+He became mortally ill in a few months before he had planned to go and, when he knew that he was dying, he made me promise to go on my own.
+　　我下飞机后租了一辆车，并买了一本详尽的地图册,在乡间行车途中，我觉得它非常有用，但快到家了，我倒觉得它没什么用了
+    I hired a car the day after landing and bought a comprehensive book of maps, which I found most helpful on the cross-country journey, but which I did not think I should need on the last stage.
+这倒并非是我背熟了地图，而是父亲曾详细给我讲了，在过了离故乡最近的那个小镇后，在每一个路标处可见到些什么。因此，我相信这段路对我来说会是很熟悉的
+It was not that I actually remembered anything at all. But my father had described over and over again what we should see at every milestone, after leaving the nearest town, so that I was positive I should recognize it as familiar territory.
+唉，实际我错了，我现在迷路了
+Well, I had been wrong, for I was now lost.
+　　我看了看地图，又查了一下里程表
+    I looked at the map and then at the milometer.
+从小镇出来，我走了10英里。照父亲的说法，我面前应是一个山谷，有农场与村舍，还可远远望见老家村子里的教堂的尖顶
+I had come ten miles since leaving the town, and at this point, according to my father, I should be looking at farms and cottages in a valley, with the spire of the church of our village showing in the far distance.
+可现在我却看不出山谷，看不见农场，看不见农舍，也看见教学尖顶，看见只是一片湖泊
+I could see no valley, no farms, no cottages and no church spire -- only a lake.
+我想一定是什么地方拐错了弯儿
+I decided that I must have taken a wrong turning somewhere.
+于是我驾车返回小镇，重新按路线行驶
+So I drove back to the town and began to retrace the route, taking frequent glances at the map.
+结果又来到刚才那个拐弯处
+I landed up at the same corner.
+奇怪的是那个湖没有在地图上标出
+The curious thing was that the lake was not marked on the map.
+我感到自己就像平时作梦那样迷迷糊糊地闯进了恶梦境地。
+I felt as if I had stumbled into a nightmare country, as you sometimes do in dreams.
+就像在恶梦里一样，见不到一个人可以帮助我。
+And, as in a nightmare, there was nobody in sight to help me.
+不过，我是幸运的，正当我走投无路之时，从天边出现一个骑马的人向我骑来
+Fortunately for me, as I was wondering what to do next, there appeared on the horizon a man on horseback, riding in my direction.
+等他走近了，问他去老家的路
+I waited till he came near, then I asked him the way to our old village.
+他说那村子已经没有了
+He said that there was now no village.
+我想他一定误解了我的意思，于是又说一遍村庄的名字
+I thought he must have misunderstood me, so I repeated its name.
+这次他用手指了一下那个湖
+This time he pointed to the lake.
+村庄已不复存在，因为已经为水所淹，山谷也被水淹没了
+The village no longer existed because it had been submerged, and all the valley too.
+这不是一个天然湖泊，是一座人工修建的水库
+The lake was not a nature one, but a man-made reservoir.
+
+第57课 重返故里
+Lesson 57 Back in the old country
+
+    我停下车，让汽车发动机冷却一下，同时查看一下地图
+    I stopped to let the car cool off and to study the map.
+我本想离目的地已经不远，但周围一切对我仍很陌生
+I had expected to be near my objective by now, but everything still seemed alien to me.
+我5岁那年，父亲就带我出了国，那是18年前的事了
+I was only five when my father had taken me abroad, and that was eighteen years ago.
+当时我母亲在一次事故中惨死，父亲未能很快从悲痛与孤独中恢复过来
+When my mother had died after a tragic accident, he did not quickly recover from the shock and loneliness.
+他身边的一切都是母亲的影子不断勾起他的伤感,于是他决定移居他国
+Everything around him was full of her presence, continually reopening the wound. So he decide to emigrate.
+在这个新的国家里，父亲专心致志地为我们俩开创一种新的生活，慢慢地不伤心了
+In the new country he became absorbed in making a new life for the two of us, so that he gradually ceased to grieve.
+父亲没有再娶，因此，我在没有母亲的环境里长大成人;但我却什么都不缺，他既当父亲又当母亲
+He did not marry again and I was brought up without a woman's care; but I lacked for nothing, for he was both father and mother to me.
+他总想将来回国看看，但却不愿长期住下去，
+He always meant to go back one day, but not to stay.
+因为他与我一样已经把根深深地扎在异国的土地上
+His roots and mine had become to firmly embedded in the new land.
+但是，他想看一看家乡父老乡亲，为我的母亲扫墓。
+But he wanted to see the old folk again and to visit my mother's grave.
+就在他计划回国的前几个月，他突然身患绝症。他知道自己已奄奄一息，于是他要我答应一定单独回故乡一趟
+He became mortally ill a few months before we had planned to go and, when he knew that he was dying, he made me promise to go on my own.
+　　我下飞机后租了一辆车，并买了一本详尽的地图册,在乡间行车途中，我觉得它非常有用，但快到家了，我倒觉得它没什么用了
+    I hired a car the day after landing and bought a comprehensive book of maps, which I found most helpful on the cross-country journey, but which I did not think I should need on the last stage.
+这倒并非是我背熟了地图，而是父亲曾详细给我讲了，在过了离故乡最近的那个小镇后，在每一个路标处可见到些什么。因此，我相信这段路对我来说会是很熟悉的
+It was not that I actually remembered anything at all. But my father had described over and over again what we should see at every milestone, after leaving the nearest town, so that I was positive I should recognize it as familiar territory.
+唉，实际我错了，我现在迷路了
+Well, I had been wrong, for I was now lost.
+　　我看了看地图，又查了一下里程表
+    I looked at the map and then at the milometer.
+从小镇出来，我走了10英里。照父亲的说法，我面前应是一个山谷，有农场与村舍，还可远远望见老家村子里的教堂的尖顶
+I had come ten miles since leaving the town, and at this point, according to my father, I should be looking at farms and cottages in a valley, with the spire of the church of our village showing in the far distance.
+可现在我却看不出山谷，看不见农场，看不见农舍，也看见教学尖顶，看见只是一片湖泊
+I could see no valley, no farms, no cottages and no church spire -- only a lake.
+我想一定是什么地方拐错了弯儿
+I decided that I must have taken a wrong truning somewhere.
+于是我驾车返回小镇，重新按路线行驶
+So I drove back to the town and began to retrace the route, taking frequent glances the map.
+结果又来到刚才那个拐弯处
+I landed up at the same corner.
+奇怪的是那个湖没有在地图上标出
+The curious thing was that the lake was marked on the map.
+我感到自己就像平时作梦那样迷迷糊糊地闯进了恶梦境地。
+I felt as if I had stumbled into a nightmare country, as you sometimes do in dreams.
+就像在恶梦里一样，见不到一个人可以帮助我。
+And, as in a nightmare, there was noboby in sight to help me.
+不过，我是幸运的，正当我走投无路之时，从天边出现一个骑马的人向我骑来
+Fortunately for me, as I was wondering what to do next, there appeared on the horizon a man on horseback, riding in my direction.
+等他走近了，问他去老家的路
+I waited till he came near, then I asked him the way to our old village.
+他说那村子已经没有了
+He said that there was now no village.
+我想他一定误解了我的意思，于是又说一遍村庄的名字
+I thought he must have misunderstood me, so I repeated its name.
+这次他用手指了一下那个湖
+This time he pointed to the lake.
+村庄已不复存在，因为已经为水所淹，山谷也被水淹没了
+The village no longer existed because it had beem submerged, and all the valley too.
+这不是一个天然湖泊，是一座人工修建的水库
+The lake was not a nature one, but a man-made reservoir.
+
+
+------------------------------ 2022-11-7 -----------------------------------
+Lesson 58
+A spot of bother
+一点儿小麻烦
+Listen to the tape then answer the question below.
+听录音，然后回答以下问题。
+What did the old lady find when she got home?
+老妇人回家时发现了发现了什么？
+
+    The old lady was glad to be back at the block of flats where she lived. 
+老妇人高兴的回到了她住的公寓
+Her shopping had tired her and her basket had grown heavier with every step of the way home. 
+购物把她累坏了，她的篮子在回家的路上越来越重
+In the lift her thoughts were on lunch and a good rest; but when she got out at her own floor, both were forgotten in her sudden discovery that her front door was open. 
+在电梯中她只想着午餐和好好休息一下；但是当她在自己楼下下车时，她突然发现她的前门是开着的时候她两者都忘了
+She was thinking that she must reprimand her home help the next morning for such a monstrous piece of negligence, when she remembered that she had gone shopping after the home help had left and she knew that she had turned both keys in their locks.
+她正在想如此极大的疏忽她明天一定要训斥她的女佣，这时她想起她女佣走了后她记得她又用钥匙转动了几个
+She walked slowly into the hall and at once noticed that all the room doors were open, yet following her regular practice she had shut them before going out. 
+她慢慢走进大厅，立刻注意到所有房间的门是打开的，但她习惯的做法是她出门前会关好它们
+Looking into the drawing room, she saw a scene of confusion over by her writing desk. 
+往会客室看进去，她看到她的写字台一片混乱
+It was as clear as daylight then that burglars had forced an entry during her absence. 
+十分清楚，窃贼趁她不在强行进入
+Her first impulse was to go round all the rooms looking for the thieves, but then she decided that at her age it might be more prudent to have someone with her, so she went to fetch the porter from his basement. 
+她的第一反应是围绕所有房间寻找窃贼，但是随后她认为以她的年纪有人陪她可能更谨慎一点，因些他去地下室叫来门房
+By this time her legs were beginning to tremble, so she sat down and accepted a cup of very strong tea, while he telephoned the police. 
+到现在她的腿有点哆嗦，因此当他打电话报警的时候，她坐下来了接了一杯浓茶，
+Then, her composure regained, she was ready to set off with the porter's assistance to search for any intruders who might still be lurking in her flat.
+然后，她恢复了镇定，她准备在门房的帮助下去搜寻仍然可能潜伏在她公寓里的闯入者
+    They went through the rooms, being careful to touch nothing, as they did not want to hinder the police in their search for fingerprints. 
+他们仔细检查了房间，小不要碰到任何东东西，因为他们不想妨碍警察寻找指纹
+The chaos was inconceivable. 
+这乱的不可想像
+She had lived in the flat for thirty years and was a veritable magpie at hoarding; and it seemed as though everything she possessed had been tossed out and turned over and over. 
+她在这公寓已经生活了30年，是一个真正的喜欢收藏东西的人；似乎她的一切东西都都翻了出来，翻了又翻
+At least sorting out the things she should have discarded years ago was now being made easier for her. 
+至少挑出她几年前已经应该扔掉的东西现在对她来讲应该很容易
+Then a police inspector arrived with a constable and she told them of her discovery of the ransacked flat. 
+然后派出所长带着一个警察到了，她告诉他们她对洗劫公寓的发现
+The inspector began to look for fingerprints, while the constable checked that the front door locks had not been forced, thereby proving that the burglars had either used skeleton keys or entered over the balcony. 
+派出所长开始寻找指纹，同时那个警察确认前门的锁没有被撬，因此证明窃贼要么用了万能钥匙，要么是从阳台翻越的
+There was no trace of fingerprints, but the inspector found a dirty red bundle that contained jewellery which the old lady said was not hers. 
+没有指纹的痕迹，但是派出所长发现了一个脏脏的红色的小包里面装着珠宝，老妇人说那不是她的
+So their entry into this flat was apparently not the burglars' first job that day and they must have been disturbed. 
+因此那天他们进入这公寓的入口显然不是窃贼第一件事情，他们肯定有被打扰到了
+The inspector then asked the old lady to try to check what was missing by the next day and advised her not to stay alone in the flat for a few nights. 
+派出所长第二天要老妇人尽力确认丢了什么，并建议她不要一个人留在公寓几个晚上
+The old lady thought he was a fussy creature, but since the porter agreed with him, she rang up her daughter and asked for her help in what she described as a little spot of bother.
+老妇人认为他大惊小怪，但因为6门房也赞同他的观点，她才打电话给她女儿寻求帮助，说她有一点小麻烦
+
+
+中译英
+
+第58课 一点儿小麻烦
+Lesson 58 A spot of bother
+
+    老妇人回到了她居住的公寓楼，心里很高兴
+    The old lady was glad to be back at the block of flats where she lived.
+去商店买东西把她搞得筋疲力尽;在回家的路上，她每走一步，就感到手里的篮子又重了一点
+Her shopping had tired her and her basket had grown heavier with every step of the way home.
+她乘上电梯后，只想着午餐和好好休息一下。但她到自己的楼层走出电梯后，就把这两件事忘了个干净，因为她突然发现她家的大门开着
+In the lift her thoughts were on lunch and a good rest; but when she got out at her own floor, both were forgotton in her sudden discovery that her front door was open.
+她心想明天上午一定要好好训斥那个干家务的帮手，她竟如此疏忽大意。但突然记起来了，帮手是在她出去买东西之前走的，她还记得曾用了两把钥匙把大门锁上了
+She was thinking that she must reprimand her home help the next morning for such a monstrous piece of negligence, when she remembered that she had gone shopping after the home help had left and she knew that she had turned both keys in their locks.
+她慢慢地走进前厅，立即发现所有的房门都敞开着，而她记得在出门买东西前，她按老规矩是把房门一一锁上的
+She walked slowly into the hall and at once noticed that all the room doors were open, yet following her regular practice she had shut them before going out.
+她往起居室里看去，写字台边一片狼籍
+Looking into the drawing room, she saw a scene of confusion over by her writing desk
+事情很清楚，在她外出时，窃贼曾闯进家门
+It was as clear as daylight then that burglars had forced an entry during her absence.
+她第一个条件反射是各个房间搜寻一下窃贼，但转念一想，像她这个年纪，最好找个人一起去,于是她到地下室去找看门的人
+Her first impulse was to go round all the rooms looking for the thievies, but then she decided that at her age it might be more prudent to have someone with her, so she went to fetch the porter from his basement.
+这时她两腿累得开始发抖，于是坐了下来，喝了一杯浓茶。与此同时，看门的人给警察挂了电话
+By this time her legs were beginning to tremble, so she sat down and accepted a cup of very strong tea, while he telephoned the police.
+此刻老妇人也镇定了下来，准备在看门人的协助下搜寻可能仍躲藏在她房里的窍贼
+Then, her composure regained, she was ready to set off with the porter's assistance to search for any intruders who might still be lurking in her flat.
+
+　　他俩搜遍这每一个房间，小心翼翼地不接触任何东西，因为他们怕妨碍警察寻找指纹
+   Thye went through the rooms, being careful to touch nothing, as they did want to hinder the police in their search for fingerprints.
+房间里的紊乱状况是无法想像的
+The chaos was in inconceivable.
+老妇人在这套公寓里住了30年，她又是个名副其实的收藏家;看来她的每一件东西都被翻了出来，并且被里里外外看了个遍
+She had lived in the flat for thirty years and was a veritable magpie at hoarding; it seemed as though everything she possessed had been tossed out and turned over and over.
+这样一来，她倒是容易将那些几年前就该扔掉的东西找出来了
+At least sorting out the things she should have discarded years ago was now being made easier for her.
+过了一会儿，一位巡官带着一名警察来了,她向他们讲述了发现公寓遭劫的经过
+Then a police inspector arrived with a constable and she told them of her discovery of the ransacked flat.
+巡官开始搜寻指纹，警察经检查发现大门锁头并无撬过的迹象。由此可以证明，窍贼或者是用万能钥匙，或者是翻越阳台进来的
+The inspector began to look for fingerprints, while the constable checked that the front door locks had not been forced, thereby proving that the burglars had either used skeleton keys or entered over the balcony.
+巡官没有发现指纹，却发现了一个装有珠宝的、肮脏的红包袱。老妇人说那不是她的
+There was no trace of fingerprints, but the inspector found a dirty red bundle that contained jewellery which the old lady said was not hers.
+很明显，闯进这套公寓的窃贼那天并不是首次作案，而且他一定受了惊吓
+So their entry into the flat was apparently not the burglar's first job that day and they must have been disturbed.
+巡官请老妇人在次日之前设法查清丢了些什么，并劝她几夜之内不要独自一人在公寓过夜
+The inspector then asked the old lady to try to check what was missing by the next day and advised her not to stay alone in the flat for a few nights.
+老妇人觉得巡官大惊小怪，但既然看门人也同意他的意见，她只得打电话向女儿求援，说她碰到了一点儿小麻烦
+The old lady thought he was a fussy creature, but since the porter agreed with him, she rang up her daughter and asked for her help in what she described as a little spot of bother.
+
+
+第58课 一点儿小麻烦
+Lesson 58 A spot of bother
+
+    老妇人回到了她居住的公寓楼，心里很高兴
+    The old lady was glad to be back at the block of flats where she lived.
+去商店买东西把她搞得筋疲力尽;在回家的路上，她每走一步，就感到手里的篮子又重了一点
+Her shopping had tired her and her basket had grown heavier with every step of the way home.
+她乘上电梯后，只想着午餐和好好休息一下。但她到自己的楼层走出电梯后，就把这两件事忘了个干净，因为她突然发现她家的大门开着
+In the lift her thoughts were on lunch and a good rest; but when she got out at her own floor, both were forgotten in her sudden discovery that her front door was open.
+她心想明天上午一定要好好训斥那个干家务的帮手，她竟如此疏忽大意。但突然记起来了，帮手是在她出去买东西之前走的，她还记得曾用了两把钥匙把大门锁上了
+She was thinking that she must reprimand her home help the next morning for such a monstrous piece of negligence, when she remembered that she had gone shopping after the home help had left and she knew that she had turned both keys in their locks.
+她慢慢地走进前厅，立即发现所有的房门都敞开着，而她记得在出门买东西前，她按老规矩是把房门一一锁上的
+She walked slowly into the hall and at once noticed that all the room doors were open, yet following her regluar practice she had shut them before going out.
+她往起居室里看去，写字台边一片狼籍
+Looking into the drawing room, she saw a scene of confusion over by her writing desk.
+事情很清楚，在她外出时，窃贼曾闯进家门
+It was as clear as daylight then that burglars had forced an entry during her absence.
+她第一个条件反射是各个房间搜寻一下窃贼，但转念一想，像她这个年纪，最好找个人一起去,于是她到地下室去找看门的人
+Her first impulse was to go round all the rooms looking for the thievies, but then she decided that at her age it might be more prudent to have someone with her, so she went to fetch the porter from his basement.
+这时她两腿累得开始发抖，于是坐了下来，喝了一杯浓茶。与此同时，看门的人给警察挂了电话
+By this time her legs were beginning to tremble, so she sat down and accepted a cup of very strong tea, while he telephoned the police.
+此刻老妇人也镇定了下来，准备在看门人的协助下搜寻可能仍躲藏在她房里的窍贼
+Then, her composure regained, she was ready to set off with the porter's assistance to search for any intruders who might still be lurking in her flat.
+
+　　他俩搜遍这每一个房间，小心翼翼地不接触任何东西，因为他们怕妨碍警察寻找指纹
+    They went through the rooms, being careful to touch nothing, as they did not want to hinder the police in their search for fingerprints.
+房间里的紊乱状况是无法想像的
+The chaos was inconceivable.
+老妇人在这套公寓里住了30年，她又是个名副其实的收藏家;看来她的每一件东西都被翻了出来，并且被里里外外看了个遍
+She had lived in the flat for thirty years and was a veritable magpie at hoarding; and it seemed as though everything she possessed had been tossed out and turned over and over.
+这样一来，她倒是容易将那些几年前就该扔掉的东西找出来了
+At least sorting out the things she should have discarded years ago was now being made easier for her.
+过了一会儿，一位巡官带着一名警察来了,她向他们讲述了发现公寓遭劫的经过
+Then a police inspector arrived with a constable and she told them of her discovery of the ransacked flat.
+巡官开始搜寻指纹，警察经检查发现大门锁头并无撬过的迹象。由此可以证明，窍贼或者是用万能钥匙，或者是翻越阳台进来的
+The inspector began to look for fingerprints, while the constable checked that the front door locks had not been forced, thereby proving that the burglars had either used skeleton keys or entered over the balcony.
+巡官没有发现指纹，却发现了一个装有珠宝的、肮脏的红包袱。老妇人说那不是她的
+There was no trace of fingerprints, but the inspector found a diry red bundle that contained jewellery who the old lady said was not hers.
+很明显，闯进这套公寓的窃贼那天并不是首次作案，而且他一定受了惊吓
+So their entry into this flat was apperently not the burglars' first job that day and they must have been disturbed.
+巡官请老妇人在次日之前设法查清丢了些什么，并劝她几夜之内不要独自一人在公寓过夜
+The inspector then asked the old lady try to check what was missing the next day and advised her not to stay alone in the flat for a few nights.
+老妇人觉得巡官大惊小怪，但既然看门人也同意他的意见，她只得打电话向女儿求援，说她碰到了一点儿小麻烦
+The old lady thought he was a fussy creature, but since the porter agreed with him, she rang up her daughter and asked for her help in what she described as a little spot of bother.
+
+第58课 一点儿小麻烦
+Lesson 58 A spot of bother
+
+    老妇人回到了她居住的公寓楼，心里很高兴
+    The old lady was glad to be back at the block of flats where she lived.
+去商店买东西把她搞得筋疲力尽;在回家的路上，她每走一步，就感到手里的篮子又重了一点
+Her shopping had tired her and her basket had grown heavier with every step of the way home.
+她乘上电梯后，只想着午餐和好好休息一下。但她到自己的楼层走出电梯后，就把这两件事忘了个干净，因为她突然发现她家的大门开着
+In the lift her thoughts were on lunch and a good rest; but when she got out at her own floor, both were forgotten in her sudden discovery that her front door was open.s
+她心想明天上午一定要好好训斥那个干家务的帮手，她竟如此疏忽大意。但突然记起来了，帮手是在她出去买东西之前走的，她还记得曾用了两把钥匙把大门锁上了
+She was thinking that she must reprimand her home help the next morning for such a monstrous piece of negligence, when she remembered that she had gone shopping after the home help had left and she knew that she had turned both keys in their locks.
+她慢慢地走进前厅，立即发现所有的房门都敞开着，而她记得在出门买东西前，她按老规矩是把房门一一锁上的
+She walked slowly into the hall and at once noticed that all the room doors were open, yet following her regular practice she had shut them before going out.
+她往起居室里看去，写字台边一片狼籍
+Looking into the drawing room, she saw a scene of confusion over by her writing desk.
+事情很清楚，在她外出时，窃贼曾闯进家门
+It was as clear as daylight then that burglars had been forced during her absence.
+她第一个条件反射是各个房间搜寻一下窃贼，但转念一想，像她这个年纪，最好找个人一起去,于是她到地下室去找看门的人
+Her first impulse was to go round all the rooms looking for the thievies, but then she decided that at her age it might be more prudent to have someone with her, so she went to fetch the porter from his basement.
+这时她两腿累得开始发抖，于是坐了下来，喝了一杯浓茶。与此同时，看门的人给警察挂了电话
+By this time her legs were beginning to tremble, so she sat down and accepted a cup of very strong tea, while he telephoned the police.
+此刻老妇人也镇定了下来，准备在看门人的协助下搜寻可能仍躲藏在她房里的窍贼
+Then, her composure regained, she was ready to set off with the porter's assistance to search for any intruders who might still be lurking in her flat.
+
+　　他俩搜遍这每一个房间，小心翼翼地不接触任何东西，因为他们怕妨碍警察寻找指纹
+    They went through the rooms, being careful to touch nothing, as they did not want to hinder the police in their search for fingerprints.
+房间里的紊乱状况是无法想像的
+The chaos was inconceivable.
+老妇人在这套公寓里住了30年，她又是个名副其实的收藏家;看来她的每一件东西都被翻了出来，并且被里里外外看了个遍
+She had lived in the flat for thirty years and was a veritable magpie at hoarding, and it seemed as though evrything she possessed had tossed out and turned over and over.
+这样一来，她倒是容易将那些几年前就该扔掉的东西找出来了
+At least sorting out the things she should have discarded years ago was now be made easier for her.
+过了一会儿，一位巡官带着一名警察来了,她向他们讲述了发现公寓遭劫的经过
+Then a police inspector arrived with a constable and she told them her discovery of the ransacked flat.
+巡官开始搜寻指纹，警察经检查发现大门锁头并无撬过的迹象。由此可以证明，窍贼或者是用万能钥匙，或者是翻越阳台进来的
+The inspector began to look for fingerprints, when the constable checked that the front door locks had not been forced, thereby proving that the burglars had either used skeleton keys or entered over the balcony.
+巡官没有发现指纹，却发现了一个装有珠宝的、肮脏的红包袱。老妇人说那不是她的
+There was no trace of fingerprints, but the inspector found a dirty red bundle that contained jewellery which the old lady said was not hers.
+很明显，闯进这套公寓的窃贼那天并不是首次作案，而且他一定受了惊吓
+So their entry into the flat was apparently not the burglars' first job that day and they must have been disturbed.
+巡官请老妇人在次日之前设法查清丢了些什么，并劝她几夜之内不要独自一人在公寓过夜
+The inspector then asked the old lady to try to check what was missing and advised her not to stay alone in the flat for a few nights.
+老妇人觉得巡官大惊小怪，但既然看门人也同意他的意见，她只得打电话向女儿求援，说她碰到了一点儿小麻烦
+The old lady thougth he was a fussy creature, but since the porter argeed with him, she rang up her daugther and asked her help in what she described as a little spot of bother.
+
+
+
+第58课 一点儿小麻烦
+Lesson 58 A spot of bother
+
+    老妇人回到了她居住的公寓楼，心里很高兴
+    The old lady was glad to be back at the block of flats where she lived.
+去商店买东西把她搞得筋疲力尽;在回家的路上，她每走一步，就感到手里的篮子又重了一点
+Her shopping had tired her and her basket had grown heavier with every step of the way home.
+她乘上电梯后，只想着午餐和好好休息一下。但她到自己的楼层走出电梯后，就把这两件事忘了个干净，因为她突然发现她家的大门开着
+In the lift her thoughts were on lunch and a good rest; but when she got out at her own floor, both were forgotten in her sudden discovery that her front door was open.
+她心想明天上午一定要好好训斥那个干家务的帮手，她竟如此疏忽大意。但突然记起来了，帮手是在她出去买东西之前走的，她还记得曾用了两把钥匙把大门锁上了
+She was thinking that she must reprimand her home help the next morning such a monstrous piece of negligence, when she remembered that she had gone shopping after the home help had left and she knew that she had turned both keys in their locks.
+她慢慢地走进前厅，立即发现所有的房门都敞开着，而她记得在出门买东西前，她按老规矩是把房门一一锁上的
+She walked slowly into the hall and at once noticed that all the room doors were open, yet following her regular practice she had shut them before going out.
+她往起居室里看去，写字台边一片狼籍
+looking into the drawing room, she saw a scene of confusion over by her writing desk.
+事情很清楚，在她外出时，窃贼曾闯进家门
+It was as clear as daylight then that burglars had forced an entry during her absence.
+她第一个条件反射是各个房间搜寻一下窃贼，但转念一想，像她这个年纪，最好找个人一起去,于是她到地下室去找看门的人
+Her first impulse was to go round all the rooms looking for the thievies, but then she decided that at her age it might be more prudent to have someone with her, so she went to fetch the porter from his basement.
+这时她两腿累得开始发抖，于是坐了下来，喝了一杯浓茶。与此同时，看门的人给警察挂了电话
+By this time her legs were beginning to tremble, so she sat down and accepted a cup of very strong tea, while he telephoned the police.
+此刻老妇人也镇定了下来，准备在看门人的协助下搜寻可能仍躲藏在她房里的窍贼
+Then, her composure regained, she was ready to set off with the porter's assisstance to search for any intruders who might still be lurking in her flat.
+
+　　他俩搜遍这每一个房间，小心翼翼地不接触任何东西，因为他们怕妨碍警察寻找指纹
+    They went through the rooms, being careful to touch nothing, as they did not want to hinder the police in their search for fingerprints.
+房间里的紊乱状况是无法想像的
+The chaos was inconceivable.
+老妇人在这套公寓里住了30年，她又是个名副其实的收藏家;看来她的每一件东西都被翻了出来，并且被里里外外看了个遍
+She had lived in the flat for thirty years and was a veritable magpie at hoarding, and it seemed as though everything she possessed had been tossed out and turned over and over.
+这样一来，她倒是容易将那些几年前就该扔掉的东西找出来了
+At least sorting out the things she should have discarded years ago was now being made easier for her.
+过了一会儿，一位巡官带着一名警察来了,她向他们讲述了发现公寓遭劫的经过
+Then a police inspector arrived with a constable and she told them of her discovery of the ransacked flat.
+巡官开始搜寻指纹，警察经检查发现大门锁头并无撬过的迹象。由此可以证明，窍贼或者是用万能钥匙，或者是翻越阳台进来的
+The inspector began to look for fingerprints, when the constable checked that the front door locks had not been forced, thereby proving that the burglars had either used skeleton keys or entered over the balcony.
+巡官没有发现指纹，却发现了一个装有珠宝的、肮脏的红包袱。老妇人说那不是她的
+There was no trace of fingerprints, but the inspector found a dirty red bundle that contained jewellery which the old lady said was not hers.
+很明显，闯进这套公寓的窃贼那天并不是首次作案，而且他一定受了惊吓
+So their entry into the flat were apparently not the burglars' first job that day and they must have been disturbed.
+巡官请老妇人在次日之前设法查清丢了些什么，并劝她几夜之内不要独自一人在公寓过夜
+The inspector then asked the old lady to try to check what was missing the next day and advised her not to stay alone in the flat a few nights.
+老妇人觉得巡官大惊小怪，但既然看门人也同意他的意见，她只得打电话向女儿求援，说她碰到了一点儿小麻烦
+The old lady thought he was a fussy creature, but since the porter agreed with him, she rang up her daughter and asked her help in what she described as a little spot of bother.
+
+
+
+----------------------- 2022-11-14 ----------------------------------
+英译中
+
+Lesson 59 Collecting
+　　收藏
+　　Listen to the tape then answer the question below.
+　　听录音，然后回答以下问题。
+　　What in particular does a person gain when he or she becomes a serious collector?
+    当一个人成为真正的收藏家时，会得到什么？
+　　
+    People tend to amass possessions, sometimes without being aware of doing so. 
+    人们往往会在不知不觉中收藏东西
+Indeed they can have a delightful surprise when they find something useful which they did not know they owned. 
+确实当他有时发现他们都不知道自己有的东西很有用时候，会有惊喜
+Those who never have to move house become indiscriminate collectors of what can only be described as clutter. 
+那些永远不必搬家的人成了无所不容的收藏家，那些东西只能称为杂物
+They leave unwanted objects in drawers, cupboards and attics for years, in the belief that they may one day need just those very things. 
+他们把不想要的东西留在抽屉，橱柜，和阁楼里很多年，他们相信或许有一天正好需要这些东西
+As they grow old, people also accumulate belongings for two other reasons, lack of physical and mental energy, both of which are essential in turning out and throwing away, and sentiment. 
+到他们老的时候，也喜欢收藏东西，因为两个原因，一是缺乏体力和精力，这两样是把东西翻出来扔掉必不可少的
+Things owned for a long time are full associations with the past, perhaps with relatives who are dead, and so they gradually acquire a value beyond their true worth.
+另一个是东西拥有的久了和过去有李感情联系，或是关系到谁的死，因此他们慢慢获得了远超他们本身的价值
+
+　　Some things are collected deliberately in the home in an attempt to avoid waste. 
+    一些东西刻意收集在家里是为了避免浪费
+Among these I would list string and brown paper, kept by thrifty people when a parcel has been opened, to save buying these two requisites. 
+当中那些，我要列出的线和牛皮纸当包裹拆开后节俭的人把这些留着，这样后面就不用买这两样必需品了
+Collecting small items can easily become a mania. 
+收集小物件很容易成为一种癖好
+I know someone who always cuts sketches out from newspapers of model clothes that she would like to buy if she had the money. 
+我认识一个人，他总是用报纸剪成衣服的模型，那些是衣服是他喜欢但是买不起的
+As she is not rich, the chances that she will ever be able to afford such purchases are remote; but she is never sufficiently strong-minded to be able to stop the practice. 
+因为她并不富裕，她能够买下的机会是极少的，但她没有足够的意志停止这样做
+It is a harmless bait, but it litters up her desk to such an extent that every time she opens it, loose bits of paper fall out in every direction.
+这个是一个无害的嗜好，但它堆满了她的桌子达到这样一个程度，每次打开它松动的纸片掉的到处都是
+
+　　Collecting as a serous hobby is quite different and has many advantages. 
+    收藏做当作一个正常爱好则迥然不同，有许多的优点
+It provides relaxation for leisure hours, as just looking at one's treasures is always a joy. 
+它提供了业余时间的消遣，比如看着某人的财宝总是很开心的
+One does not have to go outside for amusement, since the collection is housed at home. 
+另一个也不必去为了娱乐外面，因为这些收藏就都收藏在家里
+Whatever it consists of, stamps, records, first editions of books china, glass, antique furniture, pictures, model cars, stuffed birds, toy animals, there is always something to do in connection with it, from finding the right place for the latest addition, to verifying facts in reference books. 
+不管收藏是什么，邮票，唱片，中国书籍第一版，玻璃，古家具，画，汽车模型，鸟类标本，还是动物玩具， 对于最新的藏品，从寻找摆放位置到核对参考书中的事实，总归有事可做
+This hobby educates one not only in the chosen subject, but also in general matters which have some bearing on it. 
+这个爱好不仅了培养了我们选择的课题，也要培养了一些相关的事情
+There are also other benefits. 
+还有一些其它的好处
+One wants to meet like-minded collectors, to get advice, to compare notes, to exchange articles, to show off the latest find. 
+想要遇到志同道合的收藏者，得到指点，交流看法，交换物品，炫耀最新的发现
+So one's circle of friends grows. 
+因此某人的朋友圈会扩大
+Soon the hobby leads to travel, perhaps to a meeting in another town, possibly a trip abroad in search of a rare specimen, for collectors are not confined to any one country. 
+很快爱好会导至旅行，或许在另一个城镇聚会，很有可能为了找一个罕见的标本去外国旅行，因为收藏者不会局限在任何一个国家
+Over the years, one may well become a authority on one's hobby and will very probably be asked to give informal talks to little gatherings and then, if successful, to larger audiences. 
+几年之后， 某人在他的爱好方面成为权威，将很有可能会被邀请在小型聚会中做非正式的演讲，如果成功而面向更多的听众
+In this way self-confidence grows, first from mastering a subject, then from being able to take about it. 
+第一次从一个精通的话题开始，然后从能够谈论它，以这种方式增长自信，
+Collecting, by occupying spare time so constructively, makes a person contented, with no time for boredom.
+收藏通过富有建设性的利用业余时间让人感到充实，不会无聊
+
+
+
+中译英
+第59课 收藏
+Lesson 59 Collecting
+
+   人们喜欢收藏东西，有时并没有意识到自己在这样做
+    People tend to amass possessions, sometimes without being aware of doing so.
+确实，一旦无意之中从自己的收藏品中找到某件有用的东西时，可以给人一种惊喜的感觉
+Indeed they can have a delightlful surprise when they find something useful which they did know they owned.
+那些从来不必搬家的人们成了一种无所不容的收藏家, 他们专门收藏那些只能被称作杂货的东西。
+Those who never have to move house become indiscriminate collectors of what can only be described as clutter.
+他们在抽屉里，碗柜中、阁楼上堆放着一些不用的东西，一放就是好几年，相信总有一天需要的正好是那些东西
+They leave unwanted objects in drawers, cupboards and attics for years, in the belief that they may one day need just those very things.
+人们年老之后也喜欢收藏东西，不过是出于两个不同的原因：一是体力，精力均告不佳，这二者是清除无用的东西必不可少的因素;另一原因是感情因素。
+As they grow old, people who also accumulate belongings for two other reasons, lack of physcial and mental energy, both of which are assential in turning out and throwing away, and senitment.
+东西搁得时间久了，便会充满着与过去岁月的联系，比方说与死去的亲戚有关。因此这些东西慢慢获得了一种超出它本身的价值
+Things owned for a long time are full of associations with the past, perhaps with relatives who are dead, and so they gradually acquire a value beyond their true worth.
+　　居家度日，有目的地收藏某些东西是为了防止浪费
+    Some things are collected deliberately in the home in an attempt to avoid waste.
+这些东西中我想举出线绳和包装纸为例。节俭的人们打开包裹后便把这两样必备的东西收藏起来。省得日后去买
+Among these I would list string and brown paper, kept by thrifty people when a parcel has been opened, to save buying these two requisites.
+收集小玩艺儿很容易着迷
+Collecting small items can easily become a mania.
+我认识一个人，她总喜欢从报纸上剪下流行服装的图样，等以后有钱时去买服装
+I know someone who always cuts sketches out from newspapers of model clothes that she would like to buy if she had the money.
+由于她并不富裕，她买得起这些服装的可能性十分渺茫; 但她又缺乏足够坚强的意志把这一收集活动停下来
+As she is not rich, the chances that she will ever be able to afford such purchases are remote; but she is never sufficiently strong-minded to be able to stop the practice.
+这种习惯无害，只把写字台里堆得满满当当，以致每次打开抽屉总能带出许多纸片四处飞扬。
+It is a harmless habit, but it litters up her desk to such an extent that every time she opens it, loose bits of paper fall out in every direction.
+　　作为一种严肃的业余爱好的收藏活动完全是另外一回事，它具有许多益处。
+    Collecting as a serious hobby is quite different and has many advantages.
+它可以使人在闲暇中得到休息，因为欣赏自己收藏的珍品总会充满了乐趣。
+It provides relaxations for leisure hours, as just looking at one's treasure is always a joy.
+人们不必走到户外去寻求娱乐，因为收藏品都是存放在家中
+One does not have to go outside for amusement, since the collection is housed at home.
+不管收藏品是什么，邮票、唱片、头版书籍、瓷器、玻璃杯、老式家具、绘画、模型汽车、鸟类标本，还是玩具动物，从为新增添的收藏品寻找摆放位置到核对参考书中的事实，总归有事可做
+Whatever it is consists of, stamps, records, first editions of books, china, glass, antique furniture, pictures, model cars, stuffed birds, toy animals, there is always something to do in connection with it, from finding the right place for the latest addition, to verifying facts in reference books.
+这种爱好不仅能使人从选择的专题中受到教育，而且也能从与之有关的一般事物中获得长进。
+This hobby educates one not only in the chosen subject, but also in general matters which have some bearing on it.
+除此之外，还有其他的益处。
+There are also other benefits.
+收藏者要会见情趣相投的收藏者，以获取教益，交流经验、交换收藏品，炫耀自己的最新收藏。
+One wants to meet like-minded collectors, to get advice, to compare notes, to exchange articles, to show off the latest find.
+朋友的圈子就这样不断扩大。
+So one's circle of friends grows.
+用不了多久，有这种爱好的人便开始旅行，也许是去另一个城市参加会议，也可能是出国寻找一件珍品，因为收藏家是不分国籍的。
+Soon the hobby leads to travel, perhaps to a meeting in another town, possibly to a trip abroad in search for a rare specimen, for collectors are not confined to any one country.
+一人积了多年经验会成为自己这种爱好的权威，很可能应邀在小型集会上作非正式的讲话。如果讲得好，可能向更多人发表演说。
+Over the years, one may well become an authority on one's hobby and will very probably be asked to give informal talks to little gatherings and then, if successful, to larger audiences.
+这样，你自信心不断增强，先是因为掌握一门学问，接下来是因为能够就此发表见解。
+In this way self-confidence grows, first from mastering a subject, then from being able to talk about it.
+收藏活动通过富有建设性地利用业余时间使人感到心满意足，不再有无聊之日。
+Collecting, occupying spare time so constructively, makes a person contented, with no time for boredom.
+
+
+
+第59课 收藏
+Lesson 59 Collecting
+
+   人们喜欢收藏东西，有时并没有意识到自己在这样做
+    People tend to amass possessions, sometimes without being aware of doing so.
+确实，一旦无意之中从自己的收藏品中找到某件有用的东西时，可以给人一种惊喜的感觉
+Indeed they can have a delightful surprise when they find something useful which they did not know they owned.
+那些从来不必搬家的人们成了一种无所不容的收藏家, 他们专门收藏那些只能被称作杂货的东西。
+Those who never have to move house become indiscriminate collectors of what can only be described as clutter.
+他们在抽屉里，碗柜中、阁楼上堆放着一些不用的东西，一放就是好几年，相信总有一天需要的正好是那些东西
+They leave unwanted objects in drawers, cupboards and attics for years, in the belief that they may one day need just those very things
+人们年老之后也喜欢收藏东西，不过是出于两个不同的原因：一是体力，精力均告不佳，这二者是清除无用的东西必不可少的因素;另一原因是感情因素。
+As they grow old, people also accumulate belongings for two other reasons, lack of physcial and mental energy, both of which are essential in turning out and throwing away, and sentiment.
+东西搁得时间久了，便会充满着与过去岁月的联系，比方说与死去的亲戚有关。因此这些东西慢慢获得了一种超出它本身的价值
+Things owned for a long time are full of associations with the past, perhaps with relatives who are dead, and so they gradually acquire a value beyond their true worth.
+
+　　居家度日，有目的地收藏某些东西是为了防止浪费
+    Some things are collected deliberately in the home in an attempt to avoid waste.
+这些东西中我想举出线绳和包装纸为例。节俭的人们打开包裹后便把这两样必备的东西收藏起来。省得日后去买
+Among these I would list string and brown paper, kept by thrifty people when a parcel has been opened, to save buying these two requisits.
+收集小玩艺儿很容易着迷
+Collecting small items can easily become a mania.
+我认识一个人，她总喜欢从报纸上剪下流行服装的图样，等以后有钱时去买服装
+I know someone who always cuts sketches out from newspapers of model clothes that she would like to buy if she had the money.
+由于她并不富裕，她买得起这些服装的可能性十分渺茫; 但她又缺乏足够坚强的意志把这一收集活动停下来
+As she is not rich, the chances that she will ever be able to afford such purchases are remote; but she is never sufficiently strong-minded to be able to stop the practice.
+这种习惯无害，只把写字台里堆得满满当当，以致每次打开抽屉总能带出许多纸片四处飞扬。
+It is a harmless habit, but it litters up her desk to such an extent that every time she opens it, loose bits of paper fall out in every direction.
+　　作为一种严肃的业余爱好的收藏活动完全是另外一回事，它具有许多益处。
+    Collecting as a serious hobby is quite different and has many advantages.
+它可以使人在闲暇中得到休息，因为欣赏自己收藏的珍品总会充满了乐趣。
+It provides relaxation for leisure hours, as just looking at one's treasures is always a joy.
+人们不必走到户外去寻求娱乐，因为收藏品都是存放在家中
+One does not have to go outside for amusement, since the collection is housed at home.
+不管收藏品是什么，邮票、唱片、头版书籍、瓷器、玻璃杯、老式家具、绘画、模型汽车、鸟类标本，还是玩具动物，从为新增添的收藏品寻找摆放位置到核对参考书中的事实，总归有事可做
+Whatever it consists of, stamps, records, first editions of books, china, glass, antique furniture, pictures, model cars, stuffed birds, toy animals, there is always something to do in connection with it, from finding the right place for the latest addition, to verifying facts in reference books.
+这种爱好不仅能使人从选择的专题中受到教育，而且也能从与之有关的一般事物中获得长进。
+This hobby educates one not only in the chosen subject, but also in general matters which have some bearing on it.
+除此之外，还有其他的益处。
+There are also other benefits.
+收藏者要会见情趣相投的收藏者，以获取教益，交流经验、交换收藏品，炫耀自己的最新收藏。
+One wants to meet like-minded collectors, to get advice, to compare notes, to exchange articles, to show off the latest find.
+朋友的圈子就这样不断扩大。
+So one's circle of friends grows.
+用不了多久，有这种爱好的人便开始旅行，也许是去另一个城市参加会议，也可能是出国寻找一件珍品，因为收藏家是不分国籍的。
+Soon the hobby leads to travel, perhaps to a meeting in another town, possibly to a trip abroad in search of a rare specimen, for collectors are not confined to any one country.
+一人积了多年经验会成为自己这种爱好的权威，很可能应邀在小型集会上作非正式的讲话。如果讲得好，可能向更多人发表演说。
+Over the years, one may well become an authority on one's hobby and will very probably be asked to give informal talks to little gratherings and then, if successful, to larger audiences.
+这样，你自信心不断增强，先是因为掌握一门学问，接下来是因为能够就此发表见解。
+In this way self-confidence grows, first from mastering a subject, then from being able to talk about it.
+收藏活动通过富有建设性地利用业余时间使人感到心满意足，不再有无聊之日。
+Collecting, by occupying spare time so constructively , makes a person contented, with no time for boredom.
+
+
+第59课 收藏
+Lesson 59 Collecting
+
+   人们喜欢收藏东西，有时并没有意识到自己在这样做
+    People tend to amass possessions, somtimes without being aware of doing so.
+确实，一旦无意之中从自己的收藏品中找到某件有用的东西时，可以给人一种惊喜的感觉
+Indeed they can have a delightful surprise when they find something useful which they did not know they owned.
+那些从来不必搬家的人们成了一种无所不容的收藏家, 他们专门收藏那些只能被称作杂货的东西。
+Those who never have to move house become indiscriminate collectors of what can only be described as clutter.
+他们在抽屉里，碗柜中、阁楼上堆放着一些不用的东西，一放就是好几年，相信总有一天需要的正好是那些东西
+They leave unwanted objects in the drawers, cupboards ant attics for years, in the belief that they may one day need just those very things.
+人们年老之后也喜欢收藏东西，不过是出于两个不同的原因：一是体力，精力均告不佳，这二者是清除无用的东西必不可少的因素;另一原因是感情因素。
+As they grow old, people also accumulate belongings for two other reasons, lack of physical and mental energy, both of which are essential in turning out and throwing away, and sentiment.
+东西搁得时间久了，便会充满着与过去岁月的联系，比方说与死去的亲戚有关。因此这些东西慢慢获得了一种超出它本身的价值
+Things owned for a long time are full of associations with the past, perhaps with relatives who are dead, and so they gradually acquire a value beyond their true worth.
+
+　　居家度日，有目的地收藏某些东西是为了防止浪费
+    Some things are collected deliberately in the home in an attemp to avoid waste.
+这些东西中我想举出线绳和包装纸为例。节俭的人们打开包裹后便把这两样必备的东西收藏起来。省得日后去买
+Among these I would list string and brown paper, kept by thrifty people when a parcel has been opened, to save buying these two requisites.
+收集小玩艺儿很容易着迷
+Collecting small items can easily become a mania.
+我认识一个人，她总喜欢从报纸上剪下流行服装的图样，等以后有钱时去买服装
+I know someone who always cuts sketches out from newspapers of model clothes, and she would like to buy if she had the money.
+由于她并不富裕，她买得起这些服装的可能性十分渺茫; 但她又缺乏足够坚强的意志把这一收集活动停下来
+As she is not rich, the chances that she will ever be able to afford such purchases are remote; but she is never sufficiently strong-minded to be able to stop the practice.
+这种习惯无害，只把写字台里堆得满满当当，以致每次打开抽屉总能带出许多纸片四处飞扬。
+It is a harmless habit, but it litters up her desk to such an extent that every time she opens it, loose bits of paper full out in every direction.
+　　作为一种严肃的业余爱好的收藏活动完全是另外一回事，它具有许多益处。
+    Collecting as a serious hobby is quite diffirent and has many advantages.
+它可以使人在闲暇中得到休息，因为欣赏自己收藏的珍品总会充满了乐趣。
+It provides relaxation for leisure hours, as just looking at one's treasures is always a joy.
+人们不必走到户外去寻求娱乐，因为收藏品都是存放在家中
+One does not have to go outside for amusement, since the collecting is housed at home.
+不管收藏品是什么，邮票、唱片、头版书籍、瓷器、玻璃杯、老式家具、绘画、模型汽车、鸟类标本，还是玩具动物，从为新增添的收藏品寻找摆放位置到核对参考书中的事实，总归有事可做
+Whatever it consists of, stamps, records, first editions of books, china, glass, antique furniture, pictures, model cars, stuffed birds, toy animals, there is always something to do in connection with it, from finding the right place for the latest addition, to verifying facts in reference books.
+这种爱好不仅能使人从选择的专题中受到教育，而且也能从与之有关的一般事物中获得长进。
+This hobby educates one not only in the chosen suject, but also in general matters which have some bearing on it.
+除此之外，还有其他的益处。
+There are also other benefits.
+收藏者要会见情趣相投的收藏者，以获取教益，交流经验、交换收藏品，炫耀自己的最新收藏。
+One wants to meet like-minded collectors, to get advice, to compare notes, to exchange articles, to show off the latest find.
+朋友的圈子就这样不断扩大。
+So one's circle of friends grows.
+用不了多久，有这种爱好的人便开始旅行，也许是去另一个城市参加会议，也可能是出国寻找一件珍品，因为收藏家是不分国籍的。
+Soon the hobby leads to travel, perhaps to a meeting in anothe town, possibly to a trip abroad in search of a rare specimen, for collectors are not confined to any one country.
+一人积了多年经验会成为自己这种爱好的权威，很可能应邀在小型集会上作非正式的讲话。如果讲得好，可能向更多人发表演说。
+Over the years, one may well become an authority on one's hobby and will very probably be asked to give informal talks to little gatherings and then, if successful, to larger audiences.
+这样，你自信心不断增强，先是因为掌握一门学问，接下来是因为能够就此发表见解。
+In this way self-confidence grows, first from mastering a subject, then from being able to talk about it.
+收藏活动通过富有建设性地利用业余时间使人感到心满意足，不再有无聊之日。
+Collecting, by occupying spare time so constructively, makes a person contented, with no time for boredom.
+
+
