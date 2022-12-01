@@ -2402,4 +2402,417 @@ In this way self-confidence grows, first from mastering a subject, then from bei
 收藏活动通过富有建设性地利用业余时间使人感到心满意足，不再有无聊之日。
 Collecting, by occupying spare time so constructively, makes a person contented, with no time for boredom.
 
+------------------ 2022--11-21 ------------------------------------------------
+英译中
 
+Lesson 60 Too early and too late
+　　太早和太晚
+　　Listen to the tape then answer the question below.
+　　听录音，然后回答以下问题。
+　　Why did the young girl miss the train?
+    小姐姐为什么错过了火车？
+　　Punctuality is a necessary habit in all public affairs in civilized society. 
+    在文明社会的所有公事中准时是必要的习惯
+Without it, nothing could ever be brought to a conclusion; everything would be in state of chaos. 
+没有它，任何事事情都没有结论；每件事都将处于混乱中
+Only in a sparsely-populated rural community is it possible to disregard it. 
+只有在一个人口稀少的乡村才有可能不顾它
+In ordinary living, there can be some tolerance of unpunctuality. 
+在普通生活中也能有一些对不准时的容忍
+The intellectual, who is working on some abstruse problem, has everything coordinated and organized for the matter in hand.
+知识分子，他们研究一些深奥的问题，他们手中的每一件事情都需要协调和组织
+He is therefore forgiven if late for a dinner party. 
+如果他在一个晚宴party上迟到，会因此被原谅
+But people are often reproached for unpunctuality when their only fault is cutting things fine. 
+但是当他们仅仅为掐着点而迟到，常受人们责备
+It is hard for energetic, quick-minded people to waste time, so they are often tempted to finish a job before setting out to keep an appointment. 
+浪费时间对那些精力充沛，头脑敏捷的人是很罕见的，因此他们经常要拖到赴约前才结束一项工作
+If no accidents occur on the way, like punctured tires, diversions of traffic, sudden descent of fog, they will be on time. 
+如果在路上没有什么意外的话，比如轮胎被扎了，交通改道，突然起雾之类的，他们都会准时
+They are often more industrious, useful citizens than those who are never late. 
+他们经常是比那些从不迟到的人更勤奋更有用的市民
+The over-punctual can be as much a trial to others as the unpunctual. 
+过早来和那些不准时的人一样让人讨厌
+The guest who arrives half an hour too soon is the greatest nuisance. 
+太早到半小时的客人最讨厌的人
+Some friends of my family had this irritating habit. 
+我们家的一些朋友有这些烦人的习惯
+The only thing to do was ask them to come half an hour later than the other guests. 
+唯一可做的事情就是邀请他们比其它客人晚半小时来
+Then they arrived just when we wanted them.
+然后他们到的时间正好是我们想要他们来的时间
+
+　　If you are citing a train, it is always better to be comfortably early than even a fraction of a minted too late. 
+    如果你指的是火车，舒服的早到早比即使晚到半分都要好
+Although being early may mean wasting a little time, this will be less than if you miss the train and have to wait an hour or more for the next one; 
+尽管早到可能意味着要浪费一点时间，也比你错过火车不得不为了下一班再等一小时以上要强
+and you avoid the frustration of arriving at the very moment when the train is drawing out of the station and being unable to get on it. 
+你也可以避免刚到的那一刻就看着火车从车站开出，坐不上它而气恼
+An even harder situation is to be on the platform in good time for a train and still to see it go off without you. 
+一个甚至更差的情况是，你及时赶到了月台，仍然眼睁睁地看着火车开动
+Such an experience befell a certain young girl the first time she was traveling alone.
+这样的经历就降临在某个年轻的女孩身上那是她第一个独自旅行
+
+　　She entered the station twenty minutes before the train was due, since her parents had impressed upon her that it would be unforgivable to miss it and cause the friends with whom she was going to stay to make two journeys to meet her. 
+火车开车前20分她就了车站，因为她父母给她深刻印像，错过火车是不可原谅的事，导致原本打算留下的朋友走了两趟路去见她
+She gave her luggage to a porter and showed him her ticket. 
+她把她的行李给了一个搬运工，并给他看了她的车票
+To her horror he said that she was two hours too soon. 
+令她震惊的时，他说她早来了2个小时
+She felt in her handbag for the piece of paper on which her father had written down all the details of the journey and gave it to the porter. 
+她在手提包里摸出一张纸，那上面她爸爸为她写下了这次旅行的所有细节，然后把它给搬运工
+He agreed that a train did come into the station at the time on the paper and that it did stop, but only to take on mail, not passengers. 
+他同意在这纸的的这个时间一列火车进站，但不会停，仅是一列邮政车不是客运车
+The girl asked to see a timetable, feeling sure that her father could not have made such a mistake. 
+女孩请求看一下列车时刻表，确信他爸爸没有犯这个错误
+The porter went to fetch one and arrive back with the station master, who produced it with a flourish and pointed out a microscopic 'o' beside the time of the arrival of the train at his station; 
+搬运工去取来时刻表，和站长一起回来的，站长拿着时刻表一挥手，指着那趟到站列车时间旁边的一个很小的圆圈标记
+this little 'o' indicated that the train only stopped for mail. 
+这个小圆圈表示列车只是装邮件的
+Just as that moment the train came into the station. 
+就在这时列车进站了
+The girl, tears streaming down her face, begged to be allowed to slip into the guard's van. 
+这个女孩流着眼泪求他们让她溜进警卫车厢
+But the station master was adamant: rules could not be broken and she had to watch that train disappear towards her destination while she was left behind.
+但是站长很坚决，不能坏了规矩，她只能看着列车朝她的目的地方向消失，她被留在了后方
+
+中译英
+
+第60课 太早和太晚
+Lesson 60 Too early and too late
+
+    准时是文明社会中进行一切社交活动时必须养成的习惯。
+    Punctuality is a necessary habit in all public affairs in civilized society.
+不准时将一事无成;事事都会陷入混乱不堪的境地
+Without it, nothing could ever be brought to a conclusion; everything would be in a state of chaos.
+只有在人口稀少的农村，才可以忽视准时的习惯
+Only in a sparsely-populated rural community is it possible to disregard it.
+在日常生活中人们可以容忍一定程度的不准时
+In ordinary living, there can be some tolerance of unpunctuality.
+一个专心钻研某个复杂问题的知识分子，为了搞好手头的研究，要把一切都协调一致，组织周密
+The intellectual, who is working on some abstruse problem, has everything coordinated and organized for the matter in hand.
+因此，他要是赴宴迟到了会得到谅解
+He is therefore forgiven if late for a dinner party.
+但有些人不准时常常因为掐钟点所致，他们常常受到责备，
+But people are often reproached for unpunctuality when their only fault is cutting things fine.
+精力充沛、头脑敏捷的人极不愿意浪费时间，因此他们常想做完一件事后再去赴约
+It is hard for energetic, quick-minded people to waste time, so they are often tempted to finish a job before setting out to keep an appointment.
+要是路上没有发生如爆胎、改道、突然起雾等意外事故，他们决不会迟到
+If no accidents occur on the way, like punctured tyres, diversions of traffic, sudden descent of fog, they will be on time.
+他们与那些从不迟到的人相比，常常是更勤奋有用的公民
+They are often more industrious, useful citizens than those who are never late.
+早到的人同迟到的人一样令人讨厌
+The over-punctual can be as much a trial to others as the unpunctual.
+客人提前半小时到达是令人讨厌的
+The guest who arrives half an hour too soon is the greatest nuisance.
+我家有几个朋友就有这有令人恼火的习惯
+Some friends of my family had this irritating habit.
+唯一的办法就是请他们比别的客人晚来半小时
+The only thing to do was ask them to come half an hour later than the other guests.
+这样，他们可以恰好在我们要求的时间到达
+Then they arrived just when we wanted them.
+
+　　如果赶火车，早到总比晚到好，哪怕早到一会儿也好
+    If you are catching a train, it is always better to be comfortably early than even a fraction of minute too late.
+虽然早到可能意味着浪费一点时间，但这比误了火车等上一个多小时坐下班车浪费的时间要少;
+Although being early may mean wasting a little time, this will be less than if you miss the train and have to wait an hour or more for the next one;
+而且可以避免那种正好在火车驶出站时赶到车站，因上不去车而感到的沮丧
+and you avoid the frustration of arriving at the very moment when the train is drawing out of the station and being unable to get on it.
+更难堪的情况是虽然及时赶到站台上，却眼睁睁地看着那趟火车启动，把你抛下
+An even harder situation is to be on the platform in good time for a train and still to see it go off without you.
+一个小姑娘第一次单独出门就碰到了这种情况。
+Such an experience befell a certain young girl the first time she was traveling alone.
+
+　　在火车进站20分钟前她就进了车站, 因为她的父母再三跟她说，如果误了这趟车，她的东道主朋友就得接她两趟，这是不应该的
+    She entered the station twenty minutes before the train was due, since her parents had impressed upon her that it would be unforgivable to miss it and cause the friends with whom she was going to stay to make two journeys to meet her.
+她把行李交给搬运工并给他看了车票
+She gave her luggage to a porter and showed him her ticket.
+搬运工说她早到了两个小时，她听后大吃一惊
+To her horror he said that she was two hours too soon.
+她从钱包里摸出一张纸条，那上面有她父亲对这次旅行详细说明，她把这张纸条交给了搬运工
+She felt in her handbag for the piece of paper on which her father had written down all the details of the journey and gave it to the porter.
+搬运工说，正如纸条所说，确有一趟火车在那个时刻到站，但它只停站装邮件，不载旅客
+The porter agreed that a train did come into the station at the time on paper and that it did stop, but only to take on mail, not passengers.
+姑娘要求看到时刻表，因为她相信父亲不能把这么大的事弄错
+The girl asked to see a timetable, feeling sure that her father could not have made such a mistake.
+搬运工跑回去取时刻表，同时请来了站长。站长拿着时刻表一挥手，指着那趟列车到站时刻旁边一个很小的圆圈标记。
+The porter went to fetch one and arrived back with the station master, who produced it with a flourish and pointed out a microscopic 'o' beside the time of the arrival of the train at his station;
+这个标记表示列车是为装邮件而停车
+this little 'o' indicated that the train only stopped for mail.
+正在这时，火车进站了
+Just at that moment the train came into the station.
+女孩泪流满面，央求让她不声不响地到押车员车厢里去算了
+The girl, tears streaming down her face, begged to be allowed to slip into the guard's van.
+但站长态度坚决，规章制度不能破坏，姑娘只得眼看那趟火车消逝在她要去的方向而撇下了她。
+But the station master was adamant; rules could not be broken and she had to watch that train disappear towards her destination while she was left behind.
+
+
+第60课 太早和太晚
+Lesson 60 Too early and too late
+
+    准时是文明社会中进行一切社交活动时必须养成的习惯。
+   Punctuality is a necessary habit in all public affairs in the civilized society.
+不准时将一事无成，事事都会陷入混乱不堪的境地
+Without it, nothing could ever be brought to a conclusion; everything would be in a state of chaos.
+只有在人口稀少的农村，才可以忽视准时的习惯
+Only in a sparsely-populated rural community is it possible to disregard it.
+在日常生活中人们可以容忍一定程度的不准时
+In ordinary living, there can be some tolerance of unpunctuality.
+一个专心钻研某个复杂问题的知识分子，为了搞好手头的研究，要把一切都协调一致，组织周密
+The intellectual, who is working on some abstruse of problem, has everything coordinated and organized for the matter in hand.
+因此，他要是赴宴迟到了会得到谅解
+He is therefore forgiven if late for a dinner party.
+但有些人不准时常常因为掐钟点所致，他们常常受到责备，
+But people are often reproached for unpunctuality when their only fault is cutting things fine.
+精力充沛、头脑敏捷的人极不愿意浪费时间，因此他们常想做完一件事后再去赴约
+It is hard for energetic, quick-minded people to waste time, so they are often tempted to finish a job before setting out to keep an appointment.
+要是路上没有发生如爆胎、改道、突然起雾等意外事故，他们决不会迟到
+If no accidents occur on the way, like punctured tyres, diversions of taffic, sudden descent of fog, they will be on time.
+他们与那些从不迟到的人相比，常常是更勤奋有用的公民
+They are often more industrious, useful citizens than those who are never late.
+早到的人同迟到的人一样令人讨厌
+The over-punctual can be  as much a trial to others as the unpunctual.
+客人提前半小时到达是令人讨厌的
+The guest who arrives half an hour too soon is the greatest nuisance.
+我家有几个朋友就有这有令人恼火的习惯
+Some friends of my family had this irritating habit.
+唯一的办法就是请他们比别的客人晚来半小时
+The only thing to do was ask them to come half an hour late than the other guests.
+这样，他们可以恰好在我们要求的时间到达
+Then they arrvied just when we wanted them.
+　　如果赶火车，早到总比晚到好，哪怕早到一会儿也好
+    If you are catching a train, it is always better to be comfortably early than even a fraction of a minute too late.
+虽然早到可能意味着浪费一点时间，但这比误了火车等上一个多小时坐下班车浪费的时间要少，
+Although being early may mean wasting a little time, this will be less than if you miss the train and have to wait an hour or more for the next one;
+而且可以避免那种正好在火车驶出站时赶到车站，因上不去车而感到的沮丧
+and you aviod the frustration of arriving at the very moment when the train is drawing out of the station and being unable to get on it.
+更难堪的情况是虽然及时赶到站台上，却眼睁睁地看着那趟火车启动，把你抛下
+An even harder situation is to be on the platform in good time for a train and still to see it go off without you.
+一个小姑娘第一次单独出门就碰到了这种情况。
+Such an experience befell a certain young girl the first time she was traveling alone.
+
+　　在火车进站20分钟前她就进了车站, 因为她的父母再三跟她说，如果误了这趟车，她的东道主朋友就得接她两趟，这是不应该的
+    She entered the station twenty minutes before the train was due, since her parents had impressed upon her that it would be unforgivable to miss it and cause the friends with whom she was going to stay to make two journeys to meet her.
+她把行李交给搬运工并给他看了车票
+She gave her luggage to a porter and showed him her ticket.
+搬运工说她早到了两个小时，她听后大吃一惊
+To her horror he said that she was two hours too soon.
+她从钱包里摸出一张纸条，那上面有她父亲对这次旅行详细说明，她把这张纸条交给了搬运工
+She felt in her handbag for the piece of paper on which her father had written down all the details of the journey and gave it to the porter.
+搬运工说，正如纸条所说，确有一趟火车在那个时刻到站，但它只停站装邮件，不载旅客
+The porter agreed that a train did come into the station at that time on the paper and that it did stop, but only to take on mail, not passengers.
+姑娘要求看到时刻表，因为她相信父亲不能把这么大的事弄错
+The girl asked to see a timetable, feeling sure that ther father could not have made such a mistake.
+搬运工跑回去取时刻表，同时请来了站长。站长拿着时刻表一挥手，指着那趟列车到站时刻旁边一个很小的圆圈标记。
+The porter went to fetch one and arrived back with the station master, who produced it with a flourish and pointed out a microscopic 'o' beside the time of the arrival of the train at his station;
+这个标记表示列车是为装邮件而停车
+this little 'o' indicates that the train only stopped for mail.
+正在这时，火车进站了
+Just at that moment the train came into the station.
+女孩泪流满面，央求让她不声不响地到押车员车厢里去算了
+The girl, tears streaming down her face, begged to be allowed to slip into the guard's van.
+但站长态度坚决，规章制度不能破坏，姑娘只得眼看那趟火车消逝在她要去的方向而撇下了她。
+But the station master was adamant; rules could not be broken and she had to watch that train disappear towards her destination while she was left behind.
+
+
+第60课 太早和太晚
+Lesson 60 Too early and too late
+
+    准时是文明社会中进行一切社交活动时必须养成的习惯。
+    Punctuality is a necessary habit in all public affairs in the civilized society.
+不准时将一事无成，事事都会陷入混乱不堪的境地
+Without it, nothing could ever be brought to a conclusion; everything would be in a state of chaos.
+只有在人口稀少的农村，才可以忽视准时的习惯
+Only in a sparsely-populated rural community is it possible to disregard it.
+在日常生活中人们可以容忍一定程度的不准时
+In ordinary living, there can be some tolerance of unpunctuality.
+一个专心钻研某个复杂问题的知识分子，为了搞好手头的研究，要把一切都协调一致，组织周密
+The intellectual, who is working on some abstruse problem, has everything coordinated and organized for the matter in hand.
+因此，他要是赴宴迟到了会得到谅解
+He is therefore forgiven if late for a dinner party.
+但有些人不准时常常因为掐钟点所致，他们常常受到责备，
+But people are often reproached for unpunctuality when their only fault is cutting things fine.
+精力充沛、头脑敏捷的人极不愿意浪费时间，因此他们常想做完一件事后再去赴约
+It is hard for energetic, quick-minded people to waste time, so they are often tempted to finish a job before setting out to keep an appointment.
+要是路上没有发生如爆胎、改道、突然起雾等意外事故，他们决不会迟到
+If no accidents occur on the way, like punctured tyres, diversions of traffic, sudden descent of fog, they will be on time.
+他们与那些从不迟到的人相比，常常是更勤奋有用的公民
+They are often more adustrious, useful citizens than those who are never late.
+早到的人同迟到的人一样令人讨厌
+The over-punctual can be as much a trial to others as the unpunctual.
+客人提前半小时到达是令人讨厌的
+The guest who arrives half an hour too soon is the greatest nuisance.
+我家有几个朋友就有这有令人恼火的习惯
+Some friends of my family had this irritating habit.
+唯一的办法就是请他们比别的客人晚来半小时
+The only thing to do was ask them to come half an hour late than the other guests.
+这样，他们可以恰好在我们要求的时间到达
+Then they arrived just when we wanted them.
+　　如果赶火车，早到总比晚到好，哪怕早到一会儿也好
+    If you are catching a train, it is always better to be comfortably early than even a fraction of a minute too late.
+虽然早到可能意味着浪费一点时间，但这比误了火车等上一个多小时坐下班车浪费的时间要少，
+Although being early may mean wasting a little time, this will be less than if you miss the train and have to wait an hour or more for the next one;
+而且可以避免那种正好在火车驶出站时赶到车站，因上不去车而感到的沮丧
+and you avoid a frustration of arriving at the very moment when the train is drawing out of the station and being unable to get on it.
+更难堪的情况是虽然及时赶到站台上，却眼睁睁地看着那趟火车启动，把你抛下
+An even harder satuation is to be on the platform in good time for a train and still to see it go off wihtout you.
+一个小姑娘第一次单独出门就碰到了这种情况。
+Such an experience befell a certain young girl the first time she was traveling alone.
+
+　　在火车进站20分钟前她就进了车站, 因为她的父母再三跟她说，如果误了这趟车，她的东道主朋友就得接她两趟，这是不应该的
+    She entered the station twenty minutes before the train was due, since her parents had impressed upon her that it would be unforgivable to miss it and cause the friends with whom she was going to stay to make two journeys to meet her.
+她把行李交给搬运工并给他看了车票
+She gave her luggage to a porter and showed him her ticket.
+搬运工说她早到了两个小时，她听后大吃一惊
+To her horror he said that she was two hours too soon.
+她从钱包里摸出一张纸条，那上面有她父亲对这次旅行详细说明，她把这张纸条交给了搬运工
+She felt in her handbag for the piece of paper on which her father had written down all the details of the journey and gave it to the porter.
+搬运工说，正如纸条所说，确有一趟火车在那个时刻到站，但它只停站装邮件，不载旅客
+The porter agreed that a train did come into the station at the time on paper and that it did stop, but only to take on mail, not passengers.
+姑娘要求看到时刻表，因为她相信父亲不能把这么大的事弄错
+The girl asked to see a timetable, feeling sure that her father could not have made such a mistake.
+搬运工跑回去取时刻表，同时请来了站长。站长拿着时刻表一挥手，指着那趟列车到站时刻旁边一个很小的圆圈标记。
+The porter went to fetch one and arrived back with the station master, who produced it with a flourish and pointed out a microscopic 'o' beside the time of the arrival of the train at his station;
+这个标记表示列车是为装邮件而停车
+this little 'o' indicated that the train only stopped for mail.
+正在这时，火车进站了
+Just at the moment the train came into the station.
+女孩泪流满面，央求让她不声不响地到押车员车厢里去算了
+The girl, tears streaming down her face, begged to be allowed to slip into the guard's van.
+但站长态度坚决，规章制度不能破坏，姑娘只得眼看那趟火车消逝在她要去的方向而撇下了她。
+But the station master was adamant; rules could not be broken and she had to watch that train disappear towards her destination while she was left behind.
+
+第60课 太早和太晚
+Lesson 60 Too early and too late
+
+    准时是文明社会中进行一切社交活动时必须养成的习惯。
+    Punctuality is a necessary habit in all public affairs in civilized society.
+不准时将一事无成，事事都会陷入混乱不堪的境地
+Without it, nothing could ever be brought to a conclusion; everything would be in a state of chaos.
+只有在人口稀少的农村，才可以忽视准时的习惯
+Only in a sparsely-populated rural community is it possible to disregard it.
+在日常生活中人们可以容忍一定程度的不准时
+In ordinary living, there can be some tolerance of unpunctuality.
+一个专心钻研某个复杂问题的知识分子，为了搞好手头的研究，要把一切都协调一致，组织周密
+The intellectual, who is working on some abstruse problem, has everything coordinated and organized for the matter in hand.
+因此，他要是赴宴迟到了会得到谅解
+He is therefore forgiven if late for a dinner party.
+但有些人不准时常常因为掐钟点所致，他们常常受到责备，
+But people are often reproached for unpunctuality when their only fault is cutting things fine.
+精力充沛、头脑敏捷的人极不愿意浪费时间，因此他们常想做完一件事后再去赴约
+It is hard for energetic, quick-minded people to waste time, so they are often tempted to finish a job before setting out to keep an appointment.
+要是路上没有发生如爆胎、改道、突然起雾等意外事故，他们决不会迟到
+If no accidents occur on the way, like punctured tyres, diversions of traffic, sudden descent of fog, they will be on time.
+他们与那些从不迟到的人相比，常常是更勤奋有用的公民
+They are often more industrious, useful citizens than those who are never late.
+早到的人同迟到的人一样令人讨厌
+The over-punctual can be as much a trial to others as the unpunctual.
+客人提前半小时到达是令人讨厌的
+The guest who arrives half an hour too soon is the greatest nuisance.
+我家有几个朋友就有这有令人恼火的习惯
+Some friends of my family had this irritating habit.
+唯一的办法就是请他们比别的客人晚来半小时
+The only thing to do was ask them to come half an hour later than the other guests.
+这样，他们可以恰好在我们要求的时间到达
+Then they arrived just when we wanted them.
+　　如果赶火车，早到总比晚到好，哪怕早到一会儿也好
+    If you are catching a train, it is always better to be comfortably early than even a fraction of a minute too late.
+虽然早到可能意味着浪费一点时间，但这比误了火车等上一个多小时坐下班车浪费的时间要少，
+Although being early may mean wasting a little time, this will be less than if you miss the train and have to wait an hour or more for the next one;
+而且可以避免那种正好在火车驶出站时赶到车站，因上不去车而感到的沮丧
+and you avoid the frustration of arriving at the very moment when the train is drawing out of the station and being unable to get on it.
+更难堪的情况是虽然及时赶到站台上，却眼睁睁地看着那趟火车启动，把你抛下
+An even harder situation is to be on the platform in good time for a train and still to see it go off without you.
+一个小姑娘第一次单独出门就碰到了这种情况。
+Such an experience befell a certain young girl the first tine she was traveling alone.
+
+　　在火车进站20分钟前她就进了车站, 因为她的父母再三跟她说，如果误了这趟车，她的东道主朋友就得接她两趟，这是不应该的
+    She entered the station twenty minutes before the train was due, since her parents had impressed upon her that it would be unforgivable to miss it and cause the friends with whom she was going to stay to make two journeys to meet her.
+她把行李交给搬运工并给他看了车票
+She gave her luggage to a porter and showed him her ticket.
+搬运工说她早到了两个小时，她听后大吃一惊
+To her horror he said that she was two hours too soon.
+她从钱包里摸出一张纸条，那上面有她父亲对这次旅行详细说明，她把这张纸条交给了搬运工
+She felt in her handbag for the piece of paper on which her father had written down all the details of the journey and gave it to the porter.
+搬运工说，正如纸条所说，确有一趟火车在那个时刻到站，但它只停站装邮件，不载旅客
+The porter agreed that a train did come into the station at the time on the paper and that it did stop, but only to take on mail, not passengers.
+姑娘要求看到时刻表，因为她相信父亲不能把这么大的事弄错
+The girl asked to see a timetable, feeling sure that her father could not have made such a mistake.
+搬运工跑回去取时刻表，同时请来了站长。站长拿着时刻表一挥手，指着那趟列车到站时刻旁边一个很小的圆圈标记。
+The porter went to fetch one and arrived back with the station master, who produced it with a flourish and pointed out a microscopic 'o' beside the time of the arrival of the train at his station;
+这个标记表示列车是为装邮件而停车
+this little 'o' indicated that the train only stopped for mail.
+正在这时，火车进站了
+Just at that moment the train came into the station.
+女孩泪流满面，央求让她不声不响地到押车员车厢里去算了
+The girl, tears streaming down her face, begged to be allowed to slip into the guard's van.
+但站长态度坚决，规章制度不能破坏，姑娘只得眼看那趟火车消逝在她要去的方向而撇下了她。
+But the station master was adamant; rules could not be broken and she had to watch that train disappear towards her destination while she was left behind.
+
+第60课 太早和太晚
+Lesson 60 Too early and too late
+
+    准时是文明社会中进行一切社交活动时必须养成的习惯。
+    Punctuality is necessary habit in all public affairs in civilized society.
+不准时将一事无成，事事都会陷入混乱不堪的境地
+Without it, nothing could ever be brought to a conclusion; everything would be in a state of chaos.
+只有在人口稀少的农村，才可以忽视准时的习惯
+Only in a sparsely-populated rural community is it possible to disregard it.
+在日常生活中人们可以容忍一定程度的不准时
+In ordinary living, there can be some tolerance of unpunctuality.
+一个专心钻研某个复杂问题的知识分子，为了搞好手头的研究，要把一切都协调一致，组织周密
+The intellectual, who is working on some abstruse problem, has everthing coordinated and organized for the matter in hand.
+因此，他要是赴宴迟到了会得到谅解
+He is therefore forgiven if late for a dinner party.
+但有些人不准时常常因为掐钟点所致，他们常常受到责备，
+But people are often reproached for unpunctuality when their only fault is cutting things fine.
+精力充沛、头脑敏捷的人极不愿意浪费时间，因此他们常想做完一件事后再去赴约
+It is hard for energetic, quick-minded people to waste time, so they are often tempted to finish a job before setting out to keep an appointment.
+要是路上没有发生如爆胎、改道、突然起雾等意外事故，他们决不会迟到
+If no accidents occur on the way, like punctured tyres, diversions of traffic, sudden descent of fog, they will be on time.
+他们与那些从不迟到的人相比，常常是更勤奋有用的公民
+They are often more adustrious, useful citizens than those who are never late.
+早到的人同迟到的人一样令人讨厌
+The over-punctual can be as much a trial to others as the unpunctual.
+客人提前半小时到达是令人讨厌的
+The guest who arrives half an hour too soon is the greatest unisance.
+我家有几个朋友就有这有令人恼火的习惯
+Some friends of my family had this irritating habit.
+唯一的办法就是请他们比别的客人晚来半小时
+The only thing to do was ask them to come half an hour later than the other guests.
+这样，他们可以恰好在我们要求的时间到达
+Then they arrived just when we wanted them.
+　　如果赶火车，早到总比晚到好，哪怕早到一会儿也好
+    If you are catching a train, it is always better to be comfortably early than even a fraction of a minute too late.
+虽然早到可能意味着浪费一点时间，但这比误了火车等上一个多小时坐下班车浪费的时间要少，
+Although being early may mean wasting a little time, this will be less than if you miss the train and have to wait an hour or more for the next one;
+而且可以避免那种正好在火车驶出站时赶到车站，因上不去车而感到的沮丧
+and you avoid the frustration of arriving at the very moment when the train is drawing out of the station and being unable to get on it.
+更难堪的情况是虽然及时赶到站台上，却眼睁睁地看着那趟火车启动，把你抛下
+An even harder situation is to be on the platform in good time for a train and still to see it go off without you.
+一个小姑娘第一次单独出门就碰到了这种情况。
+Such an experience befell a certain young girl the first time she was traveling alone.
+　　在火车进站20分钟前她就进了车站, 因为她的父母再三跟她说，如果误了这趟车，她的东道主朋友就得接她两趟，这是不应该的
+    She entered the station twenty minutes before the train was due, since her parents had impressed upon her that it would be unforgivable to miss it and cause the friends with whom she was going to stay to make two journeys to meet her.
+她把行李交给搬运工并给他看了车票
+She gave her luggage to a porter and showed him her ticket.
+搬运工说她早到了两个小时，她听后大吃一惊
+To her horror he said that she was two hours too soon.
+她从钱包里摸出一张纸条，那上面有她父亲对这次旅行详细说明，她把这张纸条交给了搬运工
+She felt in her handbag for the piece of paper on which her father had written down all the details of the journey and gave it to the porter.
+搬运工说，正如纸条所说，确有一趟火车在那个时刻到站，但它只停站装邮件，不载旅客
+He agreed that a train did come into the station at the time on the paper and that it did stop, but only to take on mail, not passengers.
+姑娘要求看到时刻表，因为她相信父亲不能把这么大的事弄错
+The girl asked to see a timetable, feeling sure that her father could not have made such a mistake.
+搬运工跑回去取时刻表，同时请来了站长。站长拿着时刻表一挥手，指着那趟列车到站时刻旁边一个很小的圆圈标记。
+The porter went to fetch one and arrived back with the station master, who produced it with a flourish and pointed out a microscopic 'o' beside the time of the arrival of the train at his station;
+这个标记表示列车是为装邮件而停车
+this little 'o' indicated that train only stopped for mail.
+正在这时，火车进站了
+Just at that moment the train came into the station.
+女孩泪流满面，央求让她不声不响地到押车员车厢里去算了
+The girl, tears streaming down her face, begged to be allowed to slip into the guard's van.
+但站长态度坚决，规章制度不能破坏，姑娘只得眼看那趟火车消逝在她要去的方向而撇下了她。
+But the station master was adamant; rules could not be broken and she had to watch that train disappear towards her destination while she was left behind.
+
+----------------------  2022-12-1 ----------------------------------------
